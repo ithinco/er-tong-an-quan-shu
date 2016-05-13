@@ -46,51 +46,47 @@
 
 #### 角色扮演
 
-**角色扮演**：如果阿姨总是捏你的脸蛋，而你不希望她这么做，你会怎么办？你会怎么说，怎么做？
+If someone touches you in a way you don't want them to, you have permission to tell them you don't like it. Let’s try a “What if…” game.
 
-> 孩子们也许会回答：“请不要这么做”、“停下来”或“我不喜欢你这么做”。
+RP:  What if a friend of your dad's always plays with your hair and you don't like it?
+
+If you like it, is it okay? Maybe, but if you don't like it, you could say "Please don't do that."
+
+Is that rude?  Would you get in trouble?
+
+If you don't like what someone is doing, you need to tell them and show them.
+
+**角色扮演**：如果阿姨总是捏你的脸蛋，而你不希望她这么做，你会怎么办？你会怎么说，怎么做？
 
 你应该怎么让她知道你不喜欢被她捏脸？
 
-> 孩子应该跑开或把手挡开。
-
-你觉得大人知道你心里在想什么吗？当然不是。
-
-因此，如果你不想让别人碰你，你就必须这么说出来。
-
 如果你不喜欢别人对你在做的事情，你可以通过两种方式告诉他们。一种是用身体，另一种是用语言。
 
-**角色扮演**：假如我是你爸爸的朋友，我总是想要让你坐在我腿上，但你不喜欢这样，你会怎么办？你该怎么告诉我，你想要下来？
+RP: What if I'm your friend's mom and I always want you to sit on my lap, but you don't like to anymore? How would you let me know you want to get down?
 
-> 孩子们通常会说“停下来”。你应该告诉孩子，要清楚地说出自己想要对方做的事。“请把我放下来”。通常孩子们在这么说时不会动，你应该让他们进行现场演示。
+Coach your child to use words, body language and eye  contact.
+ 
 
-好！现在让我看看，你该怎么行动，好从腿上下来。
+ 
+Not all cultural groups are comfortable with direct eye contact.  If that is the case, having the first two elements (saying “no" and consistent body language) is sufficient as long as the communication is clear.
+ 
+RP:  What if I’m a friend of your mom's and I like picking you up and hugging you, but lately you don't like the way it makes you feel? How would you let me know you want me to stop?
 
-> 你应该让孩子们尝试从腿上下来。哪怕孩子们看了视频，那也只是概念。每个孩子都必须学会将概念和行动结合起来。这是让每个孩子真正掌握技能的核心。
+Again, you want your child to combine saying, and showing with his/her body, what he/she wants. You also want with each role-play to expand the options, giving your child more ways  to  say "no."
 
-好，现在让我们将它们结合起来。
+RP:  What about people who tickle or wrestle with you?  It’s fun for a while, but then it's not fun anymore. What do you say and do?
 
-> 你应该让孩子们说：“请把我放下来”，同时要试图下来。
+What if you're laughing so the person thinks you don’t mean it when you say "Stop?"
+One suggestion is that they could discuss it with person at a time when they're not being tickled.  Another is to say "I know I'm laughing, but I really want you to stop."
+RP:   What if you don’t like kisses on the lips anymore? If you don’t like it, what could you say and do?
 
-好，这样就很清楚了。我知道你究竟想要什么了。
+Certainly it is not appropriate to actually role­ play kissing, but talk and role-play with your child how to resolve this dilemma. 
 
-**角色扮演**：假如我是你爸爸的另一个朋友，我喜欢双手抱你，但最近我似乎抱得太紧了，你不喜欢这种感觉，你会怎么办？你该怎么让我知道，你想要我停止这种行为？
+Children are sensitive about hurting others feelings, so coming up with something like, "Grandpa, I really love you, but I don't want to be kissed on the lips anymore, I want to be kissed on the cheek."
 
-> 和前面一样，你应该让孩子结合言语、身体动作来说出自己想要的事情。你也可以在角色扮演中扩展孩子们言语表达的方式。比如说：“不”、“请不要这么做”或“我不喜欢这样。”
+RP:  What about someone in your family who swats you o the bottom or messes up your hair, but you feel you're getting too big for that?    What could you say and   do?
 
-**角色扮演**：假如我来整理你身上的衣服，如果你不喜欢我这么做，你会怎么说？
-
-> “不要这么做”不够有效，如果对方想要把你的衬衫塞进裤子里去，你也许可以这么说：“谢谢你，我觉得我可以自己做这件事”。
-
-**角色扮演**：如果有人挠你痒呢？一开始这很有趣，但很快就变得不有趣了，这时你会怎么说，怎么做？
-
-但假如你是笑着说的，对方会认为你在说“停下来”时不是认真的。
-
-> 一个建议是孩子们可以在没有被挠痒时跟那个人说。另一种方式是说：“即便我在笑，我真的想要你停下来”。
-
-**角色扮演**：假如有家人总是抱起你，而你感觉自己长大了，不想再这么被抱着了，你会怎么说，怎么做？
-
-> “请不要再抱起我了，我长大了。”
+Your child could say, "Please don't do that, I'm getting too big for that.”
 
 如果有人触碰你的方式让你不喜欢，让你觉得很滑稽或是你觉得不对，告诉他们停下来。
 
