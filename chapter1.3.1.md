@@ -18,12 +18,13 @@
 * 言辞达意
 * 相配的肢体语言
 
-在角色扮演中运用这些技能。saying "no" to unwanted touch with people known to the child.
-To acknowledge that individual children have different feelings about touch
+在角色扮演中运用这些技能，对来自熟人的不想要的触碰行为说“不”。
+
+认识到每个孩子对于触碰行为都有自己的想法。
 
 #### 大人须知
 
-Children learn they can speak up about what happens to their bodies when we teach them, and show them by our own behavior, that their bodies do indeed belong to themselves. 小孩子已经知道自己喜欢和不喜欢哪种触碰。他们通过社会交往，对触碰已经有了大概的期望。他们知道哪种触碰不对或让自己感觉不舒服。 Prevention of sexual abuse training builds upon these elements and gives children permission to communicate their feelings appropriately and effectively.
+只要我们教，孩子们很快就会学会，自己能大声说出发生在自己身体上的事情，我们还应该言传身教，让他们知道自己的身体的确属于自己。 小孩子已经知道自己喜欢和不喜欢哪种触碰。他们通过社会交往，对触碰已经有了大概的期望。他们知道哪种触碰不对或让自己感觉不舒服。预防性虐待训练建立在这些元素上，让孩子可以有效、适当地表达自己的感觉。
 
 在本课中，所有例子都不构成性虐待。然而，如果孩子学会了对他人捏自己脸蛋或举起自己的行为说“不”，他们也就能对其他自己不喜欢的触碰行为说“不”了。
 
@@ -35,11 +36,11 @@ Children learn they can speak up about what happens to their bodies when we teac
 
 #### 孩子须知
 
-We're going to talk about taking care of yourself. And, of course, taking care of yourself should start with your own body.
+我们将要谈论照顾自己的事情。当然，照顾自己要从自己的身体开始。
 
 你的身体属于谁？
 
-如果你的身体属于自己，你觉得自己应该说谁用什么方式碰了你吗？我觉得应该。让我们一起来看看视频，看里面的孩子们学到了什么和自己身体有关的东西。Let's watch the videotape and see what you can do if someone touches you in a way that's not all right with you.
+如果你的身体属于自己，你觉得自己应该说谁用什么方式碰了你吗？我觉得应该。让我们一起来看看视频，看看当有人以你不喜欢的方式触碰你时，你可以做什么。
 
 #### 和孩子一起看视频
 
