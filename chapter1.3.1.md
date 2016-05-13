@@ -39,7 +39,7 @@ We're going to talk about taking care of yourself. And, of course, taking care o
 
 你的身体属于谁？
 
-如果你的身体属于自己，你觉得自己应该说谁用什么方式碰了你吗？我觉得应该。让我们一起来看看视频，看里面的孩子们学到了什么和自己身体有关的东西。
+如果你的身体属于自己，你觉得自己应该说谁用什么方式碰了你吗？我觉得应该。让我们一起来看看视频，看里面的孩子们学到了什么和自己身体有关的东西。Let's watch the videotape and see what you can do if someone touches you in a way that's not all right with you.
 
 #### 和孩子一起看视频
 
