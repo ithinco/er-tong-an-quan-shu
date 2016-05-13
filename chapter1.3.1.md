@@ -18,11 +18,12 @@
 * 言辞达意
 * 相配的肢体语言
 
-在角色扮演中运用这些技能。
+在角色扮演中运用这些技能。saying "no" to unwanted touch with people known to the child.
+To acknowledge that individual children have different feelings about touch
 
 #### 大人须知
 
-小孩子已经知道自己喜欢和不喜欢哪种触碰。他们通过社会交往，对触碰已经有了大概的期望。他们知道哪种触碰不对或让自己感觉不舒服。
+Children learn they can speak up about what happens to their bodies when we teach them, and show them by our own behavior, that their bodies do indeed belong to themselves. 小孩子已经知道自己喜欢和不喜欢哪种触碰。他们通过社会交往，对触碰已经有了大概的期望。他们知道哪种触碰不对或让自己感觉不舒服。 Prevention of sexual abuse training builds upon these elements and gives children permission to communicate their feelings appropriately and effectively.
 
 在本课中，所有例子都不构成性虐待。然而，如果孩子学会了对他人捏自己脸蛋或举起自己的行为说“不”，他们也就能对其他自己不喜欢的触碰行为说“不”了。
 
@@ -34,9 +35,9 @@
 
 #### 孩子须知
 
-你的身体属于谁？
+We're going to talk about taking care of yourself. And, of course, taking care of yourself should start with your own body.
 
-许多三岁到四岁的孩子都会回答“妈妈和爸爸的”。让他们说说谁给他们梳头、刷牙和穿衣服。
+你的身体属于谁？
 
 如果你的身体属于自己，你觉得自己应该说谁用什么方式碰了你吗？我觉得应该。让我们一起来看看视频，看里面的孩子们学到了什么和自己身体有关的东西。
 
