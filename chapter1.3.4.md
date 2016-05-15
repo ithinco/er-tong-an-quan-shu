@@ -32,7 +32,7 @@ To make it clear that nonverbal communication of problems rarely works.
 
 We've talked about taking care of yourself and speaking up for yourself whenever someone touches you in a y that is not okay with you. But there are other ways that people kids feel bad.
 
-Let's watch the videotape once more and see what the kids are learning about.
+让我们来看视频，看看视频里的孩子们今天学了什么。
 
 #### 和孩子一起看视频
 
