@@ -42,6 +42,9 @@ Finally, children need to understand that adults have their own problems and wor
 
 #### 和孩子一起看视频
 
+如果你要求某人停止触碰你，我想要你说：“我会告诉大人”。这是不是告密呢？
+
+不。告密说的是你报告和自己一样大的孩子的事情，这样他们就有麻烦了。
 Okay, if you ask someone to stop touching you and stop, then I want you to say, "I'm  going to tell."
 
 Is that being a tattletale?    No. Being a tattletale (or tattling) is when you tell o the same age as you so you can get them in trouble
