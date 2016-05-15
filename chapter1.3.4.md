@@ -8,13 +8,21 @@
 
 让孩子们认识到，大人也有问题要处理。
 
-让孩子们认识到，大人有时候会因为问题而迁怒孩子。
+让孩子们认识到，大人有时候会因为自己的问题而迁怒孩子。
 
 让孩子们知道，如果有人伤害他们，他们就应该告诉别人。
 
-介绍言语伤人的概念。
+To differentiate between punishment or discipline which is appropriate, and that which is excessive and hurtful.
 
-教育孩子有效地说话。
+To give permission to tell someone when they're being hurt.
+
+To acknowledge the difficulty of telling when it involves someone they love or want to protect, and give them a way to tell anyway.
+
+To discuss hurt feelings and help children recognize emotional abuse.  
+
+To set guidelines and resources for action when emotional abuse occurs.
+
+To make it clear that nonverbal communication of problems rarely works.  
 
 鼓励孩子们告诉大人，列出可以告诉的人的清单。
 
