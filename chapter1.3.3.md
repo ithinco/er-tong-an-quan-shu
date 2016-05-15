@@ -33,6 +33,7 @@ To acknowledge the difficulty of telling when it involves someone the child and 
 It is believed that "I'm going to tell" does not increase the risk of violence to the child. Abusers who are known to the child are not usually motivated by violence. They are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. It's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
 
 Saying, "I'm going to tell," and then telling should be like a reflex. This reflex is instilled through previous experience and constant reinforcement. Each time we listen, we teach children that their feelings and questions are welcome and will be taken seriously. It is also essential that we not tell children specifically who they can or cannot trust. An abuser can be anyone. Children need to make their own decisions about     who they trust.
+告诉大人应该像条件反射一样。孩子们应该有这样一种感觉，即他们总是能把发生在自己身上的事情告诉信任的人，而且总是能得到倾听和信任。这一条件反射的形成依赖于之前的经验和不断的强化。我们每次倾听时，都要告诉他们，他们的感受和问题很重要，我们总是会严肃对待。
 
 Finally, children need to understand that adults have their own problems and worries, that they don't always listen well and that sometimes they can't help. When this happens, children need to know who else to go to. The primary message is: keep telling until someone listens and helps you with your problems.
 
