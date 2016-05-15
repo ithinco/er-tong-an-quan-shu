@@ -13,9 +13,9 @@
 * 绝交
 * 收买
 
-继续加强沟通要素
-To continue to reinforce elements of communication and comfort with saying no to grownups.
-To continue to encourage and validate touch which is positive and healthy. 
+继续加强沟通要素的练习，习惯对成人说不。
+
+继续鼓励和认识积极、健康的触碰行为。
 
 清楚地区分秘密和惊喜。
 
