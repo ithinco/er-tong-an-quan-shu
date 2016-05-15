@@ -33,17 +33,7 @@ Resisting emotional coercion and requests for secrecy are also an essential part
 
 #### 孩子须知
 
-上一节课我们讲到了“你的身体属于自己，如果有人以你不喜欢的方式触碰你，你可以大声说出来”。
-
-你觉得在和成年人说“不”时，你可能碰到麻烦吗？
-
-你可以对老师说“不”吗？
-
-保姆呢？
-
-你能对警察说“不”吗？
-
-让我们来看视频，看看视频里面的孩子们对说“不”是怎么想的？
+Do people always listen when you ask them to stop what they're doing?  Let’s see what happens when the kids in the videotape say "no" to a grownup.
 
 #### 和孩子一起看视频
 
