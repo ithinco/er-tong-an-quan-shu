@@ -6,17 +6,14 @@
 
 #### 目标
 
-允许孩子在一些情况下说“不”，比如有人以孩子不喜欢、感觉不舒服或认为不对的方式触碰时。
-
-教育孩子们以适当的方式有效地说“不”。
-
-教育孩子们可以对任何要求他们做以下事情的人说“不”：
-
-* 觉得对方不应该要求自己做的事情，
-* 可能伤害到自己的事情，
-* 或爸爸妈妈可能不想要自己做的事情。
-
-教育孩子“没有秘密”原则。
+让孩子练习抵抗常见
+To give children practice in resisting the common forms of coercion, including:
+like me /love me,
+ special friend, 
+won't be friend, and 
+bribery.
+To continue to reinforce elements of communication and comfort with saying no to grownups.
+To continue to encourage and validate touch which is positive and healthy. 
 
 清楚地区分秘密和惊喜。
 
