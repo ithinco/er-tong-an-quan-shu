@@ -6,20 +6,16 @@
 
 #### 目标
 
-让孩子练习抵抗常见要挟，包括：
-
-* 喜欢我/爱我
-* 特殊朋友
-* 绝交
-* 收买
-
-继续加强沟通要素的练习，习惯对成人说不。
-
-继续鼓励和认识积极、健康的触碰行为。
-
-清楚地区分秘密和惊喜。
-
-通过角色扮演践行“没有秘密”原则，尤其是在触碰行为上。
+To  teach  children how to use the "I'm  going to tell" response  effectively. 
+To  practice  assertiveness  with  a variety  of responses  to "I'm  going to tell,"
+I don't care,
+no one will believe you, 
+bribery,
+loss of relationship,
+you'll be in trouble, and 
+threats.
+To teach children to tell, and tell again if they aren't helped.
+To acknowledge the difficulty of telling when it involves someone the child and may want to protect.
 
 #### 大人须知
 
