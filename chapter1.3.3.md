@@ -19,9 +19,13 @@ To acknowledge the difficulty of telling when it involves someone the child and 
 
 #### 大人须知
 
-The role-plays in this lesson prepare children to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
+"I'm going to tell" is the second step for children to extricate themselves from a difficult situation and to avoid sexual abuse. Most perpetrators want the seeming "cooperation" of the child. They also require secrecy. Children who refuse to participate, or to keep quiet about what is happening to them, are less likely to be victimized.
 
-Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally, and who refuse to keep secrets, stand a better chance of resisting abuse because the offender wants the child's participation, and often will not move ahead without some assurance that s/he will not be revealed.
+It is believed that "I'm going to tell" does not increase the risk of violence to the child. Abusers who are known to the child are not usually motivated by violence. They are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. It's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
+
+Saying, "I'm going to tell," and then telling should be like a reflex. This reflex is instilled through previous experience and constant reinforcement. Each time we listen, we teach children that their feelings and questions are welcome and will be taken seriously. It is also essential that we not tell children specifically who they can or cannot trust. An abuser can be anyone. Children need to make their own decisions about     who they trust.
+
+Finally, children need to understand that adults have their own problems and worries, that they don't always listen well and that sometimes they can't help. When this happens, children need to know who else to go to. The primary message is: keep telling until someone listens and helps you with your problems.
 
 “没有秘密”原则也是儿童保护的重要组成部分，这一年龄段的孩子们应该掌握这一原则。要知道，犯罪分子肯定会要孩子们保守秘密，让他们不说出发生在自己身上的事情。对所有保密要求都自动回应“不，我会告诉大人”的孩子，就没那么容易受到伤害。
 
