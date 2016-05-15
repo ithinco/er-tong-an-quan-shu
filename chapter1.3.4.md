@@ -10,8 +10,6 @@
 
 让孩子们认识到，大人有时候会因为自己的问题而迁怒孩子。
 
-让孩子们知道，如果有人伤害他们，他们就应该告诉别人。
-
 To differentiate between punishment or discipline which is appropriate, and that which is excessive and hurtful.
 
 To give permission to tell someone when they're being hurt.
