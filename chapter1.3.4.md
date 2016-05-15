@@ -26,7 +26,7 @@ To encourage children to tell, and give them resources for telling.
 
 #### 大人须知
 
-As much as we hope it is not true, children are sometimes treated harshly when parents are not around.  You want your child to be able to tell you or someone else they trust and to be able to ask for help. 
+尽管我们都不希望这是真的，但当父母不在身边时，孩子们可能会受到严酷对待。孩子应该能告诉你或其他他们信任的人，并且能寻求帮助。
 
 #### 孩子须知
 
