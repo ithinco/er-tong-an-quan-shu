@@ -42,6 +42,10 @@ Finally, children need to understand that adults have their own problems and wor
 
 #### 和孩子一起看视频
 
+Okay, if you ask someone to stop touching you and stop, then I want you to say, "I'm  going to tell."
+
+Is that being a tattletale?    No. Being a tattletale (or tattling) is when you tell o the same age as you so you can get them in trouble
+
 #### 角色扮演
 
 All these boys and girls learned that it can sometimes be hard to say "no," especially to people you like. You don’t hurt their feelings and, at the same time, you need to speak up for yourself.
