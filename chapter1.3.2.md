@@ -6,7 +6,7 @@
 
 #### 目标
 
-让孩子练习抵抗常见
+让孩子练习抵抗常见感情绑架，包括：
 To give children practice in resisting the common forms of coercion, including:
 like me /love me,
  special friend, 
