@@ -6,12 +6,14 @@
 
 #### 目标
 
-让孩子练习抵抗常见感情绑架，包括：
-To give children practice in resisting the common forms of coercion, including:
-like me /love me,
- special friend, 
-won't be friend, and 
-bribery.
+让孩子练习抵抗常见要挟，包括：
+
+* 喜欢我/爱我
+* 特殊朋友
+* 绝交
+* 收买
+
+继续
 To continue to reinforce elements of communication and comfort with saying no to grownups.
 To continue to encourage and validate touch which is positive and healthy. 
 
