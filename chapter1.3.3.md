@@ -19,6 +19,15 @@ To acknowledge the difficulty of telling when it involves someone the child and 
 
 #### 大人须知
 
+“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。
+
+由于 85% 到 90% 的施虐者都是孩子认识的人，因此在预防虐待上，教育孩子们抵抗要挟和不保密就变得很重要了。在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
+
+人们普遍认为，“我会告诉大人”原则不会增加孩子遭受虐待的风险。记住，施虐者寻找的是温暖、不作评判、亲切的关系。他们不想要拒绝。如果遭到了拒绝，他们更可能转而寻求另一个目标，而不是冒险伤害一个懂得抗拒的孩子。
+
+在所有情况下，孩子们都必须知道，无论什么时候他们觉得必须说“我会告诉大人”的时候，他们都可以告诉父母或自己信任的人，从而让其他人停止触碰他们。
+
+记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
 "I'm going to tell" is the second step for children to extricate themselves from a difficult situation and to avoid sexual abuse. Most perpetrators want the seeming "cooperation" of the child. They also require secrecy. Children who refuse to participate, or to keep quiet about what is happening to them, are less likely to be victimized.
 
 It is believed that "I'm going to tell" does not increase the risk of violence to the child. Abusers who are known to the child are not usually motivated by violence. They are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. It's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
@@ -26,10 +35,6 @@ It is believed that "I'm going to tell" does not increase the risk of violence t
 Saying, "I'm going to tell," and then telling should be like a reflex. This reflex is instilled through previous experience and constant reinforcement. Each time we listen, we teach children that their feelings and questions are welcome and will be taken seriously. It is also essential that we not tell children specifically who they can or cannot trust. An abuser can be anyone. Children need to make their own decisions about     who they trust.
 
 Finally, children need to understand that adults have their own problems and worries, that they don't always listen well and that sometimes they can't help. When this happens, children need to know who else to go to. The primary message is: keep telling until someone listens and helps you with your problems.
-
-“没有秘密”原则也是儿童保护的重要组成部分，这一年龄段的孩子们应该掌握这一原则。要知道，犯罪分子肯定会要孩子们保守秘密，让他们不说出发生在自己身上的事情。对所有保密要求都自动回应“不，我会告诉大人”的孩子，就没那么容易受到伤害。
-
-惊喜和秘密不同。惊喜很快就会说出来，而且惊喜让人高兴。父母们应该了解这一点。在日常生活中加强这一教育时，大人应该记住这一区别，用自己的话向孩子解释。比如，为母亲节准备的项目就是惊喜，而不是秘密。孩子们知道如果将这件事说了出去，就破坏了惊喜。
 
 #### 孩子须知
 
