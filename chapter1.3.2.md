@@ -39,17 +39,31 @@ Do people always listen when you ask them to stop what they're doing?  Let’s s
 
 #### 角色扮演
 
-你现在是怎么想的？你能对大人说“不”吗？
+All these boys and girls learned that it can sometimes be hard to say "no," especially to people you like. You don’t hurt their feelings and, at the same time, you need to speak up for yourself.
 
-**角色扮演**：假如你有一个保姆，有一天她说：“我们要把鞋子和袜子脱掉，出去到雪地上玩”。你会怎么做？你会说不吗？为什么？
+RP:  What if your sitter always wants you to sit really close to you when you're watching tv or playing a video game?  You've told him that you want to sit by yourself, but he keeps pulling you over.  What do you say and do?
 
-如果有大人要求你做你知道不应该做的事，说”不“没问题。
+What if the sitter says to you, "Don't you like me? What would you say and  do?
 
-**角色扮演**：假如你的保姆带了指画颜料到你家来，在她和你的手上涂满颜料，然后说：“我们把颜料涂到墙上吧”。你会这么做吗？对她说不，然后告诉我这件事好吗？让我看看你会怎么做。
+RP:   What if a friend of your mom or dad's takes you to the movies and puts his arm around you on the back of the chair?   When you tell him it is making you uncomfortable, he says, "Oh, you're my special friend.   Don't you like me? If you liked me, you'd show me." What would you say and do?
 
-**角色扮演**：假如你爸爸给了你一根大巧克力棒，但他不知道你这一天肚子都不舒服。你会说“不”吗？你会怎么说？
+Move over and say "no"   clearly.  Then tell me about what happened when you come home.
 
-**角色扮演**：假如你和爷爷奶奶或外公外婆在外面玩，你的球掉到了马路上，爷爷/外公说去拿球没问题。当你快到路边时，如果你看到了一辆车开过来，你会怎么做？你会对爷爷/外公说他犯的错误吗？
+RP:   What if you’re visiting a friend whose big sister want to “play doctor”? She tells you and your friend to take off all your clothes so she can examine you?   What do you say and do?
+
+Say "no" using words, eye contact and body language (step back).   Then go tell an adult or call  me to come and get you.
+
+RP:   What if the swimming teacher is putting sunscreen on your back? You feel uncomfortable and ask him to stop, he says "Oh, it's all right.   I'm just trying to protect you.  What would you say and do?
+
+ RP:   What if the big brother of one of your friends is wrestling with you. He is touching you all over and makes you feel really uncomfortable? When you ask him to stop, he says he's "teaching you how big kids play." What would you say and do?
+
+Say "no" with words and body language, and go back to play with your friend or go home.  Would you also tell me when you get home?
+
+RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
+
+What if when you ask them to stop, they say, "It's all right, this is just my way of showing you how much I love you."
+
+If it's not okay with you, is it okay for the grownup to do that?
 
 #### 没有秘密原则
 
