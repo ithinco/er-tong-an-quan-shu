@@ -72,11 +72,13 @@
 
 今天我要告诉你们一条新规矩，这条规矩叫做“没有秘密”原则。
 
-“没有秘密”原则的意思是，我们不会再有秘密了！如果有人要你保密，你要说：“不，我要告诉大人。”
-Surprises are okay! Surprises are things that get told pretty soon and usually make people happy.
-Do you get surprises for your birthday or holidays?
-The rule is: If someone asks you to keep a secret, you will say, “I'm going to tell.  I don't keep secrets."  
-【重复】
+“没有秘密”原则的意思是，我们不会再有秘密了！如果有人要你保密，你要说：“不，我会告诉大人。”
+
+惊喜没问题！惊喜很快就会说出来，而且惊喜通常都会让人高兴。
+
+你在生日或节日时会得到惊喜吗？
+
+记住，如果有人要你保守秘密，你要说：“我会告诉大人。我不保密。”
 
 角色扮演：假如爷爷/外公带了礼物给你，但只有你保守秘密，才把礼物给你。这是秘密还是惊喜？这是惊喜，而且你也不会说，因为这回破坏惊喜。
 
