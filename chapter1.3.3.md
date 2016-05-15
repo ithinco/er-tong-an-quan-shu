@@ -48,65 +48,36 @@ Finally, children need to understand that adults have their own problems and wor
 
 #### 角色扮演
 
-All these boys and girls learned that it can sometimes be hard to say "no," especially to people you like. You don’t hurt their feelings and, at the same time, you need to speak up for yourself.
+RP:   What if you're at a friend's house and the big brother wants you to sit really close to him while you're watching television? You've told him you're uncomfortable and you want to sit on the floor, but he keeps bothering you.  What would you say and do?
 
-RP:  What if your sitter always wants you to sit really close to you when you're watching tv or playing a video game?  You've told him that you want to sit by yourself, but he keeps pulling you over.  What do you say and do?
+You want to create an absolutely clear progress here for children. First they say "no," including appropriate body language. Then they say "I'm going to tell.”  Then they tell.
 
-What if the sitter says to you, "Don't you like me? What would you say and  do?
+What if he says to you, "Don't you like me? If you liked me you'd sit here with me."  What would you  say and do?
+RP:   What if you were taking gymnastics and the man who teaches the class always tickles your face with his mustache?  You ask him to stop but he keeps doing it. What would you say and do?
+What if when you say "I'm going to tell," he says, "Go ahead and tell, I don't care."  What would you say and do?  Do you think your mom or dad or teacher would care? Sure they would.
 
-RP:   What if a friend of your mom or dad's takes you to the movies and puts his arm around you on the back of the chair?   When you tell him it is making you uncomfortable, he says, "Oh, you're my special friend.   Don't you like me? If you liked me, you'd show me." What would you say and do?
+RP:   What if a close friend of your mom or dad's is taking care of you and every time she gets close to you she sticks her hand up your shirt? You ask her to stop, but she keeps doing it. What would you say and do?
 
-Move over and say "no"   clearly.  Then tell me about what happened when you come home.
+What if when you say "I'm going to tell," she says, "Oh, I'm sorry, I won't do it again, but please don't tell." What would you say and do?
 
-RP:   What if you’re visiting a friend whose big sister want to “play doctor”? She tells you and your friend to take off all your clothes so she can examine you?   What do you say and do?
+Your child should say, "I'll still tell."
 
-Say "no" using words, eye contact and body language (step back).   Then go tell an adult or call  me to come and get you.
+What if she says, "Please don't tell and I'll buy you whatever you want."  Would that be okay?
 
-RP:   What if the swimming teacher is putting sunscreen on your back? You feel uncomfortable and ask him to stop, he says "Oh, it's all right.   I'm just trying to protect you.  What would you say and do?
 
- RP:   What if the big brother of one of your friends is wrestling with you. He is touching you all over and makes you feel really uncomfortable? When you ask him to stop, he says he's "teaching you how big kids play." What would you say and do?
+RP:   What if the dad of one of your friends comes into the bathroom with you whenever you go to visit?  You ask him to stop but he does it again. What do you say and do?
 
-Say "no" with words and body language, and go back to play with your friend or go home.  Would you also tell me when you get home?
-
-RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
-
-What if when you ask them to stop, they say, "It's all right, this is just my way of showing you how much I love you."
-
-If it's not okay with you, is it okay for the grownup to do that?
-
-#### 没有秘密原则
-
-你们是不是要守很多规矩？告诉我，家里有什么规矩。
-
-今天我要告诉你们一条新规矩，这条规矩叫做“没有秘密”原则。
-
-“没有秘密”原则的意思是，我们不会再有秘密了！如果有人要你保密，你要说：“不，我会告诉大人。”
-
-惊喜没问题！惊喜很快就会说出来，而且惊喜通常都会让人高兴。
-
-你在生日或节日时会得到惊喜吗？
-
-记住，如果有人要你保守秘密，你要说：“我会告诉大人。我不保密。”
-
-RP:   What if your sitter wants you to take a bath with her and tells you not to say anything to anyone?
-Is that a secret or a surprise? It's a secret, and you should say "no."
-
-RP:  What if a neighbor wants you to come over to the house to see her new game room, but she tells you that you can't tell anyone about it?  Is that a secret or a surprise?
-
-It's a secret and you should say "no."  Plus, do you go to anyone's house without asking your me first? 
-
-RP:   What if your dad's boss comes to visit and gives you money but tells you not to tell your dad? What would you say and do?
-
-Say "no" and tell me.
-
-RP:   What if I say I'll give you a new video game if you keep it a secret?  What about new sneakers, a new bike, or a new pet?  Is there anything I could give you to get you to keep a secret?
-
-If someone tries to get you to keep a secret by offer you special treats, are you going to tell?
-
-RP:   What if the babysitter breaks something real and tries to get you to keep it a secret?  What if the babysitter says she'll tell your mom or dad it if you don't keep the secret? What do you do? 
-
-If someone is touching you, you ask them to stop, and the person says "don't you like me," or "I'm teaching you about being grownup," tell them to stop.  You decide for yourself what touch is okay and not okay with you.
-
+What if you say, "I'm going to tell" and he says, "When you’re in my house you do things my way. If you don't like it, you’ll have to find another friend." What would you do?
+RP:   What if your babysitter gives you an extra special good night hug and kiss and asks you to keep it a secret?  What should you do?
+Hugs and kisses should never have to be a secret. If someone asks you to keep hugs or kisses a secret, tell right away.
+Would it be hard to tell?
+Would you tell anyway?
+RP:   What if someone said to you, “If you tell, I’ll hurt you or someone in your family?
+This is a threat and you should never try to take care of something like this by yourself. No matter how scared you are, you need to tell a grownup who can help you. If the first person you tell doesn't help, keep telling until someone does help you.
+Would it be scary if someone said something like that to you? 
+What would you do?   That's right, you'd tell someone.
+What if the person you told said something like, "Oh, they don't mean any harm."  Then what would you do?
+That's right, you'd tell someone else!
 
 
 
