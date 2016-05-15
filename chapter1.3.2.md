@@ -23,11 +23,9 @@
 
 #### 大人须知
 
-盲目遵从是孩子们易受虐待的主要原因之一。他们在成长过程中被教育要守规矩，做大人们要他们做的事，而孩子们会按照大人的要求做，哪怕是性虐待的事情。
+The role-plays in this lesson prepare children to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
 
-我们不可能（也不应该）总是陪在孩子身边，帮助他们做出重要选择，孩子们需要具备能自己做出这些选择的能力，还要知道自己在做出了决定后会得到支持。这需要我们改变要求孩子们服从权威的说法。孩子们需要知道，他们自己可以判断事情是否合适，尤其是涉及到触碰行为时。
-
-这么教育并不妨碍教育孩子们遵守指示和适当地守规矩。事实上，角色扮演中的简单例子可以让孩子们学会在需要的时候说“不”，而不用暗示他们爱和信任的大人们也许会伤害他们，或做些不合适的事情。
+Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally, and who refuse to keep secrets, stand a better chance of resisting abuse because the offender wants the child's participation, and often will not move ahead without some assurance that s/he will not be revealed.
 
 “没有秘密”原则也是儿童保护的重要组成部分，这一年龄段的孩子们应该掌握这一原则。要知道，犯罪分子肯定会要孩子们保守秘密，让他们不说出发生在自己身上的事情。对所有保密要求都自动回应“不，我会告诉大人”的孩子，就没那么容易受到伤害。
 
