@@ -33,7 +33,7 @@ Resisting emotional coercion and requests for secrecy are also an essential part
 
 #### 孩子须知
 
-Do people always listen when you ask them to stop what they're doing?  Let’s see what happens when the kids in the videotape say "no" to a grownup.
+在你要求别人停止正在对你做的事情时，他们总是会听吗？让我们看看当视频里的孩子们对大人说“不”时，会发生什么事。
 
 #### 和孩子一起看视频
 
