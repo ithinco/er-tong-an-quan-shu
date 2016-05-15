@@ -79,13 +79,24 @@ If it's not okay with you, is it okay for the grownup to do that?
 
 记住，如果有人要你保守秘密，你要说：“我会告诉大人。我不保密。”
 
-**角色扮演**：假如爷爷/外公带了礼物给你，但只有你保守秘密，才把礼物给你。这是秘密还是惊喜？这是惊喜，而且你也不会说，因为这会破坏惊喜。
+RP:   What if your sitter wants you to take a bath with her and tells you not to say anything to anyone?
+Is that a secret or a surprise? It's a secret, and you should say "no."
 
-**角色扮演**：假如你的保姆想要你晚点睡，还让你吃蛋糕和冰激淋，但她告诉你必须保密，你会怎么办？这是秘密还是惊喜？你会怎么说，会怎么做？这是秘密，你应该说“不”。
+RP:  What if a neighbor wants you to come over to the house to see her new game room, but she tells you that you can't tell anyone about it?  Is that a secret or a surprise?
 
-**角色扮演**：假如隔壁邻居想要你去他家玩游戏，但你不能告诉任何人这件事。这是秘密还是惊喜？你会怎么说，会怎么做？这是秘密，你应该说“不”。另外，在去任何人的家里之前，你都应该问我。
+It's a secret and you should say "no."  Plus, do you go to anyone's house without asking your me first? 
 
-**角色扮演**：假如照顾你的人说要给你特别的晚安抱和亲亲，并要求你保密，你会怎么办？你会怎么说，会怎么做？你应该说“不”，然后告诉我发生了什么事。拥抱和亲亲永远也不应该是秘密。如果有人要求你为拥抱或亲亲保密，立刻告诉我。
+RP:   What if your dad's boss comes to visit and gives you money but tells you not to tell your dad? What would you say and do?
+
+Say "no" and tell me.
+
+RP:   What if I say I'll give you a new video game if you keep it a secret?  What about new sneakers, a new bike, or a new pet?  Is there anything I could give you to get you to keep a secret?
+
+If someone tries to get you to keep a secret by offer you special treats, are you going to tell?
+
+RP:   What if the babysitter breaks something real and tries to get you to keep it a secret?  What if the babysitter says she'll tell your mom or dad it if you don't keep the secret? What do you do? 
+
+If someone is touching you, you ask them to stop, and the person says "don't you like me," or "I'm teaching you about being grownup," tell them to stop.  You decide for yourself what touch is okay and not okay with you.
 
 
 
