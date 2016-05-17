@@ -48,13 +48,13 @@
 
 如果有人以你不想要的方式触碰你，你可以告诉他们，自己不想要这样。让我们来玩一个“假如”游戏。
 
-RP:  What if a friend of your dad's always plays with your hair and you don't like it?
+**角色扮演**：假如你爸爸的一个朋友总是玩弄你的头发，而你不喜欢这样，你会怎么做？
 
-If you like it, is it okay? Maybe, but if you don't like it, you could say "Please don't do that."
+如果你喜欢这样，你觉得这样合适吗？这也许合适，但如果你不喜欢这样，你可以说：“请不要这么做。”
 
-Is that rude?  Would you get in trouble?
+这么说是不是不礼貌？你会不会有麻烦？
 
-If you don't like what someone is doing, you need to tell them and show them.
+如果你不喜欢对方在做的事，你需要告诉他们，并用行动表示。
 
 **角色扮演**：如果阿姨总是捏你的脸蛋，而你不希望她这么做，你会怎么办？你会怎么说，怎么做？
 
