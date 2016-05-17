@@ -46,7 +46,7 @@
 
 #### 角色扮演
 
-If someone touches you in a way you don't want them to, you have permission to tell them you don't like it. Let’s try a “What if…” game.
+如果有人以你不想要的方式触碰你，你可以告诉他们，自己不想要这样。让我们来玩一个“假如”游戏。
 
 RP:  What if a friend of your dad's always plays with your hair and you don't like it?
 
