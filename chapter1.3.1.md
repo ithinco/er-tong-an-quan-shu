@@ -72,8 +72,6 @@
 
 和之前一样，孩子应该结合语言、肢体语言来表达自己想要做的事情。家长还应该扩大每次角色扮演的选项，以便让孩子有更多方式来说“不”。
 
-Again, you want your child to combine saying, and showing with his/her body, what he/she wants. You also want with each role-play to expand the options, giving your child more ways  to  say "no."
-
 RP:  What about people who tickle or wrestle with you?  It’s fun for a while, but then it's not fun anymore. What do you say and do?
 
 What if you're laughing so the person thinks you don’t mean it when you say "Stop?"
