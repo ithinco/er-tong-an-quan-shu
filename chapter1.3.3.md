@@ -20,8 +20,7 @@
 
 教育孩子们，如果他们没有得到帮助，就要不停地说。
 
-让孩子认识到有时候“告诉大人”会很难，尤其是涉及到
-To acknowledge the difficulty of telling when it involves someone the child and may want to protect.
+让孩子认识到有时候“告诉大人”会很难，尤其是涉及到自己爱的人时。
 
 #### 大人须知
 
