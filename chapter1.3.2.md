@@ -81,9 +81,9 @@
 
 **角色扮演**：假如你的保姆想要你和她一起洗澡，还要你不能告诉任何人，这是秘密还是惊喜？这是秘密，你应该说“不”。
 
-RP:  What if a neighbor wants you to come over to the house to see her new game room, but she tells you that you can't tell anyone about it?  Is that a secret or a surprise?
+**角色扮演**：假如一个邻居让你去她家参观新游戏室，但她告诉你，你不告诉任何人这件事，这是秘密还是惊喜？
 
-It's a secret and you should say "no."  Plus, do you go to anyone's house without asking your me first? 
+这是秘密，你应该说“不”。另外，在你去任何人家里之前，你是不是都要问我？
 
 RP:   What if your dad's boss comes to visit and gives you money but tells you not to tell your dad? What would you say and do?
 
