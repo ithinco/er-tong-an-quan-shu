@@ -87,10 +87,7 @@
 **角色扮演**：假如有家人拍你的屁股或玩弄你的头发，而你角色自己长大了，你会怎么说，怎么做？
 
 孩子可以说：“请不要这么做，我已经长大了。”
-RP:  What about people who tickle or wrestle with you?  It’s fun for a while, but then it's not fun anymore. What do you say and do?
 
-What if you're laughing so the person thinks you don’t mean it when you say "Stop?"
-One suggestion is that they could discuss it with person at a time when they're not being tickled.  Another is to say "I know I'm laughing, but I really want you to stop."
 RP:   What if you don’t like kisses on the lips anymore? If you don’t like it, what could you say and do?
 
 Certainly it is not appropriate to actually role­ play kissing, but talk and role-play with your child how to resolve this dilemma. 
