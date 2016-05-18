@@ -58,6 +58,9 @@
 
 这是不是代表你做错了什么事？
 
+角色扮演：假如你朋友的姐姐
+
+要掩饰获得关注和说出事情的完整过程。
 RP:  What if the big sister of one of your friends is always mean to you when you go over to her house.  She pinches you so hard she leaves bruises.  Show me how you would tell me what is happening so I can help? 
 Actually go through the process of getting your attention and telling.
 
