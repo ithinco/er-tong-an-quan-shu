@@ -59,11 +59,6 @@
 
 > 对他说“不”，去和你朋友玩或回家。你回家后会告诉我这件事吗？
 
-RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
-
-What if when you ask them to stop, they say, "It's all right, this is just my way of showing you how much I love you."
-
-If it's not okay with you, is it okay for the grownup to do that?
 **角色扮演**：假如你认识的一个大人想要亲你的嘴，而你不喜欢这样，你会怎么说，怎么做？
 
 假如在你要他们停止这么做时，他们说：“没事，你看我有多爱你啊。”
