@@ -72,6 +72,17 @@
 
 和之前一样，孩子应该结合语言、肢体语言来表达自己想要做的事情。家长还应该扩大每次角色扮演的选项，以便让孩子有更多方式来说“不”。
 
+**角色扮演**：重复
+
+**角色扮演**：假如你不喜欢再亲嘴了，你会怎么说，怎么做？
+
+在角色扮演中亲嘴肯定不合适，但你应该和孩子讨论这个问题，并通过角色扮演来解决这一问题。
+
+孩子们对于伤害别人的感情非常敏感，因此可以说：“爷爷/外公，我真的很爱你，但我不想再亲嘴了，我想要你亲我的脸颊。”
+
+**角色扮演**：假如有家人拍你的屁股或玩弄你的头发，而你角色自己长大了，你会怎么说，怎么做？
+
+孩子可以说：“请不要这么做，我已经长大了。”
 RP:  What about people who tickle or wrestle with you?  It’s fun for a while, but then it's not fun anymore. What do you say and do?
 
 What if you're laughing so the person thinks you don’t mean it when you say "Stop?"
