@@ -72,7 +72,7 @@ RP:   What if your babysitter gives you an extra special good night hug and kiss
 Hugs and kisses should never have to be a secret. If someone asks you to keep hugs or kisses a secret, tell right away.
 Would it be hard to tell?
 Would you tell anyway?
-**角色扮演**：假如你的保姆给了你一个特别的晚安抱和吻，并要求你保密，你会怎么做？
+**角色扮演**：假如你的保姆给了你一个特别的晚安抱和亲亲，并要求你保密，你会怎么做？
 
 拥抱和亲亲永远都不该是秘密。如果有人要求你为拥抱或亲亲保密，直接诶说出来。
 
