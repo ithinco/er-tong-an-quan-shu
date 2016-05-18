@@ -55,10 +55,7 @@
 
 **角色扮演**：假如游泳老师在你背上涂防晒霜，而你觉得不舒服，让他停下来，这时他说：“没事。我只是想保护你。”你会怎么说，怎么做？
 
- RP:   What if the big brother of one of your friends is wrestling with you. He is touching you all over and makes you feel really uncomfortable? When you ask him to stop, he says he's "teaching you how big kids play." What would you say and do?
-
-Say "no" with words and body language, and go back to play with your friend or go home.  Would you also tell me when you get home?
-**角色扮演**：假如你朋友的哥哥摸你全身，让你觉得非常不舒服，当你要他停止这么做时，她说“教你大孩子的玩耍方式”，你会怎么说，怎么做？
+**角色扮演**：假如你朋友的哥哥摸你全身，让你觉得非常不舒服，当你要他停止这么做时，他说“大孩子就是这么玩的”，你会怎么说，怎么做？
 
 > 对他说“不”，人去和你朋友玩或回家。你回家后会告诉我这件事吗？
 
