@@ -6,8 +6,24 @@
 
 #### 目标
 
+教育孩子们如何有效地说话。
+
+练习坚定地应对“我会告诉大人”的不同回应，如：
+
+* 收买
+* 没人会相信你
+* 特殊朋友
+* 我不在乎
+* 你会有麻烦
+* 威胁你
+
+讨论哪些情况下需要告诉大人。
+
+为你的孩子列一张资源清单。
+
+教育孩子们，如果他们没有得到帮助，就要不停地说。
 To  teach  children how to use the "I'm  going to tell" response  effectively. 
-To  practice  assertiveness  with  a variety  of responses  to "I'm  going to tell,"
+
 I don't care,
 no one will believe you, 
 bribery,
