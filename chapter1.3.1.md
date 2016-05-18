@@ -68,7 +68,9 @@
 
 并不是所有文化都喜欢直接的眼神接触。如果是这样的话，前面两个要素（说‘不’和相配的肢体语言）就足够了，只要孩子表达地很清楚。
  
-Not all cultural groups are comfortable with direct eye contact.  If that is the case, having the first two elements (saying “no" and consistent body language) is sufficient as long as the communication is clear.
+**角色扮演**：假如我是你妈妈的朋友，我喜欢把你抱在怀里，但最近你不喜欢这种感觉了，你会怎么做？你怎么让我知道，你不想我这么做了？
+
+和之前的一样，孩子应该结合言语、肢体语言来表达自己想要做的事情。你还应该扩展每次角色扮演的选项，以便让孩子有更多方式来说“不”。
  
 RP:  What if I’m a friend of your mom's and I like picking you up and hugging you, but lately you don't like the way it makes you feel? How would you let me know you want me to stop?
 
