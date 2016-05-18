@@ -57,7 +57,7 @@
 
 **角色扮演**：假如你朋友的哥哥摸你全身，让你觉得非常不舒服，当你要他停止这么做时，他说“大孩子就是这么玩的”，你会怎么说，怎么做？
 
-> 对他说“不”，人去和你朋友玩或回家。你回家后会告诉我这件事吗？
+> 对他说“不”，去和你朋友玩或回家。你回家后会告诉我这件事吗？
 
 RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
 
