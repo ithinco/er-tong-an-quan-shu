@@ -84,19 +84,9 @@
 
 > 孩子们对于伤害别人的感情非常敏感，因此可以说：“爷爷/外公，我真的很爱你，但我不想再亲嘴了，我想要你亲我的脸。”
 
-**角色扮演**：假如有家人拍你的屁股或玩弄你的头发，而你角色自己长大了，你会怎么说，怎么做？
+**角色扮演**：假如有家人拍你的屁股或玩弄你的头发，而你觉得自己长大了，你会怎么说，怎么做？
 
 > 孩子可以说：“请不要这么做，我已经长大了。”
-
-RP:   What if you don’t like kisses on the lips anymore? If you don’t like it, what could you say and do?
-
-Certainly it is not appropriate to actually role­ play kissing, but talk and role-play with your child how to resolve this dilemma. 
-
-Children are sensitive about hurting others feelings, so coming up with something like, "Grandpa, I really love you, but I don't want to be kissed on the lips anymore, I want to be kissed on the cheek."
-
-RP:  What about someone in your family who swats you o the bottom or messes up your hair, but you feel you're getting too big for that?    What could you say and   do?
-
-Your child could say, "Please don't do that, I'm getting too big for that.”
 
 如果有人触碰你的方式让你不喜欢，让你觉得很滑稽或是你觉得不对，告诉他们停下来。
 
