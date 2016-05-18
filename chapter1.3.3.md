@@ -51,7 +51,7 @@ RP:   What if you're at a friend's house and the big brother wants you to sit re
 You want to create an absolutely clear progress here for children. First they say "no," including appropriate body language. Then they say "I'm going to tell.”  Then they tell.
 
 What if he says to you, "Don't you like me? If you liked me you'd sit here with me."  What would you  say and do?
-**角色扮演**：假如你在朋友家看电视，朋友的哥哥和你靠的越来越近，你告诉他你觉得这么做不舒服，但他就是不停止这种行为。你会怎么说，怎么做？
+**角色扮演**：假如你在朋友家看电视，朋友的哥哥想要和你靠得很近，你告诉他，你觉得这样很不舒服，但他就是不停止这种行为。你会怎么说，怎么做？
 
 在这里，你需要让孩子对事情的进展有清楚的认识。首先孩子要说“不”，包括合适的肢体语言。然后他们说：“我会告诉大人”，然后就告诉大人。
 
