@@ -92,9 +92,10 @@
 **角色扮演**：假如我说，如果你对某件事保密，就给你买一个新游戏、新球鞋、自行车、宠物或是你想要的任何东西。你会怎么做？
 
 如果有人给你好处，但要求你保密，你会告诉我吗？
-RP:   What if the babysitter breaks something real and tries to get you to keep it a secret?  What if the babysitter says she'll tell your mom or dad it if you don't keep the secret? What do you do? 
 
-If someone is touching you, you ask them to stop, and the person says "don't you like me," or "I'm teaching you about being grownup," tell them to stop.  You decide for yourself what touch is okay and not okay with you.
+**角色扮演**：假如保姆打坏了什么东西，并试图让你保密，你会怎么做？假如在你说不保密后，保姆说会亲自告诉爸爸或妈妈，你会怎么做？
+
+如果有人触碰你，而你要求他们停下来，对方说：“你不喜欢我吗？”或“我在教你做大人”，告诉他们停止这种行为。你自己知道什么触碰行为合适，什么不合适。
 
 
 
