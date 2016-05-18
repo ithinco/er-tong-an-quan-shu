@@ -66,7 +66,7 @@
 
 辅导你的孩子运用语言、肢体语言和眼神接触来做这件事。
 
-并不是所有文化都喜欢直接的眼神接触。如果是这样的话，前面两个要素（说‘不’和相配的肢体语言）就足够了，只要孩子表达的很清楚。
+并不是所有文化都喜欢直接的眼神接触。如果是这样的话，前面两个要素（说‘不’和相配的肢体语言）就足够了，只要孩子表达地很清楚。
  
 Not all cultural groups are comfortable with direct eye contact.  If that is the case, having the first two elements (saying “no" and consistent body language) is sufficient as long as the communication is clear.
  
