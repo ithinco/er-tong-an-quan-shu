@@ -24,7 +24,7 @@
 
 #### 大人须知
 
-“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。
+“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。大多数犯罪分子想要孩子的“貌似”配合，而且希望孩子保密。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。
 
 由于 85% 到 90% 的施虐者都是孩子认识的人，因此在预防虐待上，教育孩子们抵抗要挟和不保密就变得很重要了。在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
 
@@ -33,7 +33,6 @@
 在所有情况下，孩子们都必须知道，无论什么时候他们觉得必须说“我会告诉大人”的时候，他们都可以告诉父母或自己信任的人，从而让其他人停止触碰他们。
 
 记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
-"I'm going to tell" is the second step for children to extricate themselves from a difficult situation and to avoid sexual abuse. Most perpetrators want the seeming "cooperation" of the child. They also require secrecy. Children who refuse to participate, or to keep quiet about what is happening to them, are less likely to be victimized.
 
 It is believed that "I'm going to tell" does not increase the risk of violence to the child. Abusers who are known to the child are not usually motivated by violence. They are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. It's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
 
