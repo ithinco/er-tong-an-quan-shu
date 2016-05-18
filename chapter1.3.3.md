@@ -72,6 +72,13 @@ RP:   What if your babysitter gives you an extra special good night hug and kiss
 Hugs and kisses should never have to be a secret. If someone asks you to keep hugs or kisses a secret, tell right away.
 Would it be hard to tell?
 Would you tell anyway?
+**角色扮演**：假如你的保姆给了你一个特别的晚安抱和吻，并要求你保密，你会怎么做？
+
+拥抱和亲亲永远都不该是秘密。如果有人要求你为拥抱或亲亲保密，直接诶说出来。
+
+说出来很难吗？
+
+你会说出来把？
 RP:   What if someone said to you, “If you tell, I’ll hurt you or someone in your family?
 This is a threat and you should never try to take care of something like this by yourself. No matter how scared you are, you need to tell a grownup who can help you. If the first person you tell doesn't help, keep telling until someone does help you.
 Would it be scary if someone said something like that to you? 
