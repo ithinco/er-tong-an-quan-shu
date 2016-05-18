@@ -56,21 +56,13 @@
 
 假如你说“我会告诉大人”时，他说：“去告诉吧，我不在乎。”你会怎么说，怎么做？你觉得妈妈、爸爸或老师会关心这件事吗？他们当然关心。
 
-RP:   What if a close friend of your mom or dad's is taking care of you and every time she gets close to you she sticks her hand up your shirt? You ask her to stop, but she keeps doing it. What would you say and do?
-
-What if when you say "I'm going to tell," she says, "Oh, I'm sorry, I won't do it again, but please don't tell." What would you say and do?
-
-Your child should say, "I'll still tell."
-
-What if she says, "Please don't tell and I'll buy you whatever you want."  Would that be okay?
-
 **角色扮演**：假如你妈妈或爸爸的一个好朋友在照顾你，但她每次靠近你时，都会把手伸进你的衬衣里，你要求她停下来，但她依然这么做。你会怎么说，怎么做？
 
-假如当你说：“我会告诉大人”时，她说：“对不起，我不会再做了，但请不要告诉大人”。你会怎么说，怎么做？
+假如当你说：“我会告诉大人”时，她说：“对不起，我不会再这么做了，但请不要告诉大人。”你会怎么说，怎么做？
 
 孩子应该说：“我会告诉大人。”
 
-假如她说：“请不要不要说出去，你想买什么都可以。”这样好吗？
+假如她说：“请不要说出去，你想买什么都可以。”这样可以吗？
 RP:   What if the dad of one of your friends comes into the bathroom with you whenever you go to visit?  You ask him to stop but he does it again. What do you say and do?
 
 What if you say, "I'm going to tell" and he says, "When you’re in my house you do things my way. If you don't like it, you’ll have to find another friend." What would you do?
