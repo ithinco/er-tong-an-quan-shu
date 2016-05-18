@@ -47,8 +47,7 @@
 
 **角色扮演**：假如你妈妈或爸爸的一个朋友带你去看电影，用手环抱着你，当你告诉他这样不舒服时，他说：“我和你是特别的朋友啊。你不喜欢我吗？如果你喜欢我，就不要这样。”你会怎么说，怎么做？
 
-
-Move over and say "no"   clearly.  Then tell me about what happened when you come home.
+> 移开身子，清楚地说“不”。回到家后告诉我发生了什么事。
 
 RP:   What if you’re visiting a friend whose big sister want to “play doctor”? She tells you and your friend to take off all your clothes so she can examine you?   What do you say and do?
 
