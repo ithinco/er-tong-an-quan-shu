@@ -24,6 +24,7 @@
 #### 大人须知
 
 The role-plays in this lesson prepare children to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
+本课中的角色扮演可以让孩子们识别并抵抗犯罪分子们经常使用的要挟手段，以便让他们摆脱可能遭受虐待的情况。由于 85% 到 90% 的施虐者都是孩子的熟人，而要进行虐待也必须有孩子的“貌似”配合，因此直接拒绝参与是一个强大的预防工具。
 
 Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally, and who refuse to keep secrets, stand a better chance of resisting abuse because the offender wants the child's participation, and often will not move ahead without some assurance that s/he will not be revealed.
 
