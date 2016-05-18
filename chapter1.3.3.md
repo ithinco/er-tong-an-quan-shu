@@ -54,6 +54,9 @@
 
 RP:   What if you were taking gymnastics and the man who teaches the class always tickles your face with his mustache?  You ask him to stop but he keeps doing it. What would you say and do?
 What if when you say "I'm going to tell," he says, "Go ahead and tell, I don't care."  What would you say and do?  Do you think your mom or dad or teacher would care? Sure they would.
+**角色扮演**：假如你在做体操，体育老师总是用胡子扎你的脸，你要他停下来，但他不停。你会怎么说，怎么做？
+
+假如你说“我会告诉大人”时，她说：“去告诉把，我不在乎。”你会怎么说，怎么做？你觉得妈妈、爸爸或老师会关心这件事吗？他们当然关心。
 
 RP:   What if a close friend of your mom or dad's is taking care of you and every time she gets close to you she sticks her hand up your shirt? You ask her to stop, but she keeps doing it. What would you say and do?
 
