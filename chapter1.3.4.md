@@ -30,7 +30,7 @@
 
 #### 孩子须知
 
-We've talked about taking care of yourself and speaking up for yourself whenever someone touches you in a y that is not okay with you. But there are other ways that people kids feel bad.
+我们已经学过了照顾自己，以及在有人用你觉得不合适的方式触碰你时，要为自己大声说话。但别人还有其他方式来让你感觉糟糕。
 
 让我们来看视频，看看视频里的孩子们今天学了什么。
 
