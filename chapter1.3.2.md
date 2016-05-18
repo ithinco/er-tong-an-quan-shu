@@ -45,10 +45,6 @@
 
 假如保姆对你说：“你不喜欢我了吗？”你会怎么说，怎么做？
 
-RP:  What if your sitter always wants you to sit really close to you when you're watching tv or playing a video game?  You've told him that you want to sit by yourself, but he keeps pulling you over.  What do you say and do?
-
-What if the sitter says to you, "Don't you like me? What would you say and  do?
-
 RP:   What if a friend of your mom or dad's takes you to the movies and puts his arm around you on the back of the chair?   When you tell him it is making you uncomfortable, he says, "Oh, you're my special friend.   Don't you like me? If you liked me, you'd show me." What would you say and do?
 
 Move over and say "no"   clearly.  Then tell me about what happened when you come home.
