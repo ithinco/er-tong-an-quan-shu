@@ -23,9 +23,9 @@
 
 #### 大人须知
 
-The role-plays in this lesson prepare children to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
-本课中的角色扮演可以让孩子们识别并抵抗犯罪分子们经常使用的要挟手段，以便让他们摆脱可能遭受虐待的情况。由于 85% 到 90% 的施虐者都是孩子的熟人，而要进行虐待也必须有孩子的“貌似”配合，因此直接拒绝参与是一个强大的预防工具。
+本课中的角色扮演可以让孩子们识别并抵抗犯罪分子们经常使用的情感要挟手段，以便让他们摆脱可能遭受虐待的情况。由于 85% 到 90% 的施虐者都是孩子的熟人，而要进行虐待也必须有孩子的“貌似”配合，因此直接拒绝参与是一个强大的预防工具。
 
+抵抗情感要挟和不保密也是预防虐待的必要组成部分。在遭到情感压力时拒绝保持沉默和保密的孩子，能更好地抵抗虐待，因为施虐者总是想要孩子配合，在没有得到一定程度的保证时，施虐者为了防止暴露，会选择不继续下去。
 Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally, and who refuse to keep secrets, stand a better chance of resisting abuse because the offender wants the child's participation, and often will not move ahead without some assurance that s/he will not be revealed.
 
 “没有秘密”原则也是儿童保护的重要组成部分，这一年龄段的孩子们应该掌握这一原则。要知道，犯罪分子肯定会要孩子们保守秘密，让他们不说出发生在自己身上的事情。对所有保密要求都自动回应“不，我会告诉大人”的孩子，就没那么容易受到伤害。
