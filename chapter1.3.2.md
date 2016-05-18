@@ -53,8 +53,7 @@
 
 > 看着她说“不”，退后。然后告诉大人或打电话给我，让我来接你。
 
-RP:   What if the swimming teacher is putting sunscreen on your back? You feel uncomfortable and ask him to stop, he says "Oh, it's all right.   I'm just trying to protect you.  What would you say and do?
-**角色扮演**：假如游泳老师在你背上涂防晒霜，而你觉得不舒服，让他停下来，这时他说：“哦，没事。我只是想保护你。”你会怎么说，怎么做？
+**角色扮演**：假如游泳老师在你背上涂防晒霜，而你觉得不舒服，让他停下来，这时他说：“没事。我只是想保护你。”你会怎么说，怎么做？
 
  RP:   What if the big brother of one of your friends is wrestling with you. He is touching you all over and makes you feel really uncomfortable? When you ask him to stop, he says he's "teaching you how big kids play." What would you say and do?
 
