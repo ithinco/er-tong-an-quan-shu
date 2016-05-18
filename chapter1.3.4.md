@@ -39,19 +39,18 @@
 #### 角色扮演
 
 假如有人对你说：”你很笨。“你会觉得受伤吗？
-What if someone says to you, "You're stupid," does that hurt?
 
-What about if they say to you, "You can't do anything right," or, "You're a bad kid," does that hurt?
+假如他们对你说：“你什么事都做不好”，或“你是个坏孩子”，你会觉得受伤吗？
 
-This directly contradicts the old saying, “Sticks and stones may hurt my bones, but names will never hurt me.”  It just isn’t true.  Words hurt and we need to give our children a way to deal with things that are said to them.
- 
-If someone hurts you with their words and it happens a lot, you should tell someone about that. Who would you tell?
+言语伤人，我们需要让孩子们能应对别人说他们的话。
 
-Have your child list resources and write them down on the board or paper.
+如果有人经常用话伤你，你应该告诉大人这件事。你会告诉谁？
 
-What if someone hurts your body, like hitting you too hard, because they say you were bad?   Would you tell someone?
+你的孩子应该列出自己能寻求帮助的资源，并写下来。
 
-Do you think your mom or dad have problems?
+假如有人因为别人说你坏，而狠狠地打了你，你会告诉谁？
+
+你觉得妈妈或爸爸有没有碰到问题？
 
 Most children know their parents have problems and have no reluctance about saying so.
 
