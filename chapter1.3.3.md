@@ -64,7 +64,7 @@ Your child should say, "I'll still tell."
 
 What if she says, "Please don't tell and I'll buy you whatever you want."  Would that be okay?
 
-**角色扮演**：假如你妈妈或爸爸的一个好朋友在照顾你，但她每次靠近你时，都会把手伸进你的衬衣里，你要求她停下来，但她继续这么做。你会怎么说，怎么做？
+**角色扮演**：假如你妈妈或爸爸的一个好朋友在照顾你，但她每次靠近你时，都会把手伸进你的衬衣里，你要求她停下来，但她依然这么做。你会怎么说，怎么做？
 
 假如当你说：“我会告诉大人”时，她说：“对不起，我不会再做了，但请不要告诉大人”。你会怎么说，怎么做？
 
