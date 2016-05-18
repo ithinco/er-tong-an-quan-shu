@@ -6,32 +6,21 @@
 
 #### 目标
 
-教育孩子们如何有效地说话。
+教育孩子们如何运用“我会告诉大人”来有效地做出反应。
 
 练习坚定地应对“我会告诉大人”的不同回应，如：
 
 * 我不在乎
-* 收买
 * 没人会相信你
+* 收买
+* 绝交
 * 特殊朋友
-
 * 你会有麻烦
 * 威胁你
 
-讨论哪些情况下需要告诉大人。
-
-为你的孩子列一张资源清单。
-
 教育孩子们，如果他们没有得到帮助，就要不停地说。
-To  teach  children how to use the "I'm  going to tell" response  effectively. 
 
-I don't care,
-no one will believe you, 
-bribery,
-loss of relationship,
-you'll be in trouble, and 
-threats.
-To teach children to tell, and tell again if they aren't helped.
+让孩子认识到有时候“告诉大人”会很难，尤其是涉及到
 To acknowledge the difficulty of telling when it involves someone the child and may want to protect.
 
 #### 大人须知
