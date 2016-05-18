@@ -63,9 +63,14 @@
 孩子应该说：“我会告诉大人。”
 
 假如她说：“请不要说出去，你想买什么都可以。”这样可以吗？
+
 RP:   What if the dad of one of your friends comes into the bathroom with you whenever you go to visit?  You ask him to stop but he does it again. What do you say and do?
 
 What if you say, "I'm going to tell" and he says, "When you’re in my house you do things my way. If you don't like it, you’ll have to find another friend." What would you do?
+**角色扮演**：假如你每次去朋友家玩时，你朋友的爸爸都会和你一起去洗手间。你要求他停止这么做，但他还是这么做。你会怎么说，怎么做？
+
+假如你说：“我会告诉大人”，他说：“”
+
 RP:   What if your babysitter gives you an extra special good night hug and kiss and asks you to keep it a secret?  What should you do?
 Hugs and kisses should never have to be a secret. If someone asks you to keep hugs or kisses a secret, tell right away.
 Would it be hard to tell?
