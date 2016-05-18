@@ -46,11 +46,6 @@
 
 #### 角色扮演
 
-RP:   What if you're at a friend's house and the big brother wants you to sit really close to him while you're watching television? You've told him you're uncomfortable and you want to sit on the floor, but he keeps bothering you.  What would you say and do?
-
-You want to create an absolutely clear progress here for children. First they say "no," including appropriate body language. Then they say "I'm going to tell.”  Then they tell.
-
-What if he says to you, "Don't you like me? If you liked me you'd sit here with me."  What would you  say and do?
 **角色扮演**：假如你在朋友家看电视，朋友的哥哥想要和你靠得很近，你告诉他，你觉得这样很不舒服，但他依然这么做，你会怎么说，怎么做？
 
 在这里，你需要让孩子对事情的进展有清楚的认识。首先孩子要说“不”，包括合适的肢体语言。然后说：“我会告诉大人”，再然后就告诉大人。
