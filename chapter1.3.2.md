@@ -41,10 +41,9 @@
 
 所有男孩和女孩都知道，有时候说“不”会很难，尤其是对自己喜欢的人说“不”时。孩子不想伤害这些人的感情，但同时，孩子需要能为自己大声说话。
 
-**角色扮演**：假如在你看电视或玩游戏时，你的保姆想要和你靠的太紧，你会怎么做？你已经告诉了她，你想要自己作者，但她继续这么做，你会怎么说，怎么做？
+**角色扮演**：假如在你看电视或玩游戏时，你的保姆想要和你靠得很近，你会怎么做？你已经告诉她了，你想要自己坐着，但她依然这么做，你会怎么说，怎么做？
 
 假如保姆对你说：“你不喜欢我了吗？”你会怎么说，怎么做？
-All these boys and girls learned that it can sometimes be hard to say "no," especially to people you like. You don’t hurt their feelings and, at the same time, you need to speak up for yourself.
 
 RP:  What if your sitter always wants you to sit really close to you when you're watching tv or playing a video game?  You've told him that you want to sit by yourself, but he keeps pulling you over.  What do you say and do?
 
