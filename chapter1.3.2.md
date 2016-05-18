@@ -49,7 +49,7 @@
 
 > 移开身子，清楚地说“不”。回到家后告诉我发生了什么事。
 
-**角色扮演**：假如你去朋友家玩，朋友的姐姐想和你玩“看病”的游戏。她跟你和你朋友说把所有衣服都脱下来，这样她好检查你们的身体，你会怎么说，怎么做？
+**角色扮演**：假如你去朋友家玩，朋友的姐姐想和你玩“看病”的游戏。她要你和你朋友说把所有衣服都脱下来，这样她好检查你们的身体，你会怎么说，怎么做？
 
 看着她说“不”，然后退后。然后告诉大人或打电话给我，让我来接你。
 RP:   What if you’re visiting a friend whose big sister want to “play doctor”? She tells you and your friend to take off all your clothes so she can examine you?   What do you say and do?
