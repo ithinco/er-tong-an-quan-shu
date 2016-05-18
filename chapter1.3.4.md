@@ -72,15 +72,6 @@
 
 假如我并不觉得这是什么事，还说：“他就那样，无视他。”
 
-如果有人因为自己这一天过得不好，而让你感觉自己很糟糕
-，告诉大人！
+如果有人因为自己这一天过得不好，而让你感觉自己很糟糕，告诉大人！
 
-在你碰到问题是，有很多人可以帮你。如果大人把他们的问题怪罪到你头上，你必须说出来并寻求帮助！
-RP:  What if your uncle yells at you when you are visiting.  Who would you tell?
-
-What if you told me and I was not really paying attention?
-
-What if I didn’t think it was anything serious and I said, “Oh, he is just that way, ignore him.”
-
-If someone hurts you or makes you feel badly about yourself because they are having a bad day, always tell someone!
-There are lots of people who can help you if you have a problem.  If grownups take their problems our on you, you have to tell and get help!
+在你碰到问题时，有很多人可以帮你。如果大人把他们的问题怪罪到你头上，你必须说出来并寻求帮助！
