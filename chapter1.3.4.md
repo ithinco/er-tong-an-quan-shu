@@ -62,11 +62,9 @@
 
 要演示获得关注并说出事情的完整过程。
 
-**角色扮演**：假如你爸爸总是带着糟糕的情绪回到家。他为每一件小事对你指手画脚。你知道他工作上不顺利，但你也想要和别人说这件事。你会跟谁说？
+**角色扮演**：假如你爸爸总是带着糟糕的情绪回到家。他为每一件小事对你指手画脚。你知道他工作得不顺利，但你也想要和别人说这件事。你会跟谁说？
 
-和前面一样，表演真哥哥过程。
-RP:  What if your dad always comes home from work in a bad mood.  He jumps on your for every little thing.  You know he is having a hard time at work, but you also want to talk to someone about it.  What would you do?
-Once again, go through the entire process.
+和前面一样，表演整个过程。
 
 RP:  What if your uncle yells at you when you are visiting.  Who would you tell?
 
