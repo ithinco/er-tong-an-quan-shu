@@ -70,9 +70,7 @@
  
 **角色扮演**：假如我是你妈妈的朋友，我喜欢把你抱在怀里，但最近你不喜欢这种感觉了，你会怎么做？你怎么让我知道，你不想我这么做了？
 
-和之前的一样，孩子应该结合言语、肢体语言来表达自己想要做的事情。你还应该扩展每次角色扮演的选项，以便让孩子有更多方式来说“不”。
- 
-RP:  What if I’m a friend of your mom's and I like picking you up and hugging you, but lately you don't like the way it makes you feel? How would you let me know you want me to stop?
+和之前一样，孩子应该结合语言、肢体语言来表达自己想要做的事情。你还应该扩展每次角色扮演的选项，以便让孩子有更多方式来说“不”。
 
 Again, you want your child to combine saying, and showing with his/her body, what he/she wants. You also want with each role-play to expand the options, giving your child more ways  to  say "no."
 
