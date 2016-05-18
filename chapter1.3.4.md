@@ -52,11 +52,11 @@
 
 你觉得妈妈或爸爸有没有碰到问题？
 
-Most children know their parents have problems and have no reluctance about saying so.
+许多孩子都知道自己的父母有问题，而且也愿意说出来。
 
-Do mom or dad ever treat you differently because of their problems?  Do they get cranky or mean?
+爸爸或妈妈有没有因为自己的问题而对你态度不同？他们有没有变得奇怪或刻薄？
 
-Does that mean you did anything wrong?
+这是不是代表你做错了什么事？
 
 RP:  What if the big sister of one of your friends is always mean to you when you go over to her house.  She pinches you so hard she leaves bruises.  Show me how you would tell me what is happening so I can help? 
 Actually go through the process of getting your attention and telling.
