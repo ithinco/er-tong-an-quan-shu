@@ -62,11 +62,11 @@
 
 如果你不喜欢别人对你在做的事情，你可以通过两种方式告诉他们。一种是用身体，另一种是用语言。
 
-RP: What if I'm your friend's mom and I always want you to sit on my lap, but you don't like to anymore? How would you let me know you want to get down?
+**角色扮演**：假如我是你妈妈的朋友，我总是想要你坐到我腿上，但你不想这样了，你会怎么做？你怎么让我知道，你想要下来？
 
-Coach your child to use words, body language and eye  contact.
- 
+辅导你的孩子运用语言、肢体语言和眼神接触来做这件事。
 
+并不是所有文化都喜欢直接的眼神接触。如果是这样的话，前面两个要素（说‘不’和配套的肢体语言）就足够了，只要孩子表达的很清楚。
  
 Not all cultural groups are comfortable with direct eye contact.  If that is the case, having the first two elements (saying “no" and consistent body language) is sufficient as long as the communication is clear.
  
