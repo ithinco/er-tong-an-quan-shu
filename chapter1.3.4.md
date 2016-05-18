@@ -10,8 +10,6 @@
 
 让孩子们认识到，大人有时候会因为自己的问题而迁怒孩子。
 
-To differentiate between punishment or discipline which is appropriate, and that which is excessive and hurtful.
-
 To give permission to tell someone when they're being hurt.
 
 To acknowledge the difficulty of telling when it involves someone they love or want to protect, and give them a way to tell anyway.
@@ -21,6 +19,17 @@ To discuss hurt feelings and help children recognize emotional abuse.
 To set guidelines and resources for action when emotional abuse occurs.
 
 To make it clear that nonverbal communication of problems rarely works.  
+区分惩罚或适度的守规矩，以及过度就会造成伤害。
+
+教育孩子在受到伤害时告诉大人。
+
+让孩子们认识到，当涉及他们爱或想要保护的人时，要说出来会很困难，但尽管如此，也要通过某种方式说出来。
+
+讨论受伤的感觉，帮助孩子们认识情感虐待。
+
+为情感伤害设置行动指南和资源。
+
+让孩子们清楚地知道，不用言语沟通来解决问题很难成功。
 
 鼓励孩子们告诉大人，列出可以告诉的人的清单。
 
