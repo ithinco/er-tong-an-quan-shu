@@ -89,10 +89,9 @@
 
 > 说“不”，然后告诉我。
 
-RP:   What if I say I'll give you a new video game if you keep it a secret?  What about new sneakers, a new bike, or a new pet?  Is there anything I could give you to get you to keep a secret?
+**角色扮演**：假如我说，如果你对某件事保密，就给你买一个新游戏、新球鞋、自行车、宠物或是你想要的任何东西。你会怎么做？
 
-If someone tries to get you to keep a secret by offer you special treats, are you going to tell?
-
+如果有人给你好处，但要求你保密，你会告诉我吗？
 RP:   What if the babysitter breaks something real and tries to get you to keep it a secret?  What if the babysitter says she'll tell your mom or dad it if you don't keep the secret? What do you do? 
 
 If someone is touching you, you ask them to stop, and the person says "don't you like me," or "I'm teaching you about being grownup," tell them to stop.  You decide for yourself what touch is okay and not okay with you.
