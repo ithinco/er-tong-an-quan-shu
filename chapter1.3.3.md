@@ -75,6 +75,20 @@
 说出来很难吗？
 
 你会说出来吧？
+
+**角色扮演**：假如有人对你说：“如果你告诉大人，我会伤害你或你的家人。”
+
+这是威胁，你永远也不要独自处理像这样的事情。不管你有多害怕，你都需要告诉一个能帮助你的大人。如果你告诉的第一个大人不帮你，一直说，直到有人帮你。
+
+如果有人对你说这样的话，你会害怕吗？
+
+你会怎么做？
+
+对了，你应该告诉大人。
+
+假如你告诉的那个人对你说：“他们不是想要伤害你。”这时你会怎么做？“
+
+对了，你应该告诉大人！
 RP:   What if someone said to you, “If you tell, I’ll hurt you or someone in your family?
 This is a threat and you should never try to take care of something like this by yourself. No matter how scared you are, you need to tell a grownup who can help you. If the first person you tell doesn't help, keep telling until someone does help you.
 Would it be scary if someone said something like that to you? 
