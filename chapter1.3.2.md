@@ -45,8 +45,8 @@
 
 假如保姆对你说：“你不喜欢我了吗？”你会怎么说，怎么做？
 
-角色扮演：假如你妈妈或爸爸的一个朋友带你去看电影，用手环抱着你，当你告诉他这样不舒服时，他说：“我和你是不一般的朋友啊。你不喜欢我吗？如果你喜欢我，就不要这样。”你会怎么说，怎么做？
-RP:   What if a friend of your mom or dad's takes you to the movies and puts his arm around you on the back of the chair?   When you tell him it is making you uncomfortable, he says, "Oh, you're my special friend.   Don't you like me? If you liked me, you'd show me." What would you say and do?
+**角色扮演**：假如你妈妈或爸爸的一个朋友带你去看电影，用手环抱着你，当你告诉他这样不舒服时，他说：“我和你是特别的朋友啊。你不喜欢我吗？如果你喜欢我，就不要这样。”你会怎么说，怎么做？
+
 
 Move over and say "no"   clearly.  Then tell me about what happened when you come home.
 
