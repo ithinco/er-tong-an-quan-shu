@@ -51,7 +51,7 @@
 
 **角色扮演**：假如你去朋友家玩，朋友的姐姐想和你玩“看病”的游戏。她要你和你朋友把所有衣服都脱下来，这样她好检查你们的身体，你会怎么说，怎么做？
 
-看着她说“不”，退后。然后告诉大人或打电话给我，让我来接你。
+> 看着她说“不”，退后。然后告诉大人或打电话给我，让我来接你。
 
 RP:   What if the swimming teacher is putting sunscreen on your back? You feel uncomfortable and ask him to stop, he says "Oh, it's all right.   I'm just trying to protect you.  What would you say and do?
 
