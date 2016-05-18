@@ -66,6 +66,16 @@
 
 > 和前面一样，表演整个过程。
 
+**角色扮演**：假如你叔叔/舅舅在你去他家时吼你，你会告诉谁？
+
+假如你跟我说了，但我并不真的在意，你会怎么做？
+
+假如我并不觉得这是什么事，还说：“他就那样，无视他。”
+
+如果有人因为自己这一天过得不好，而让你感觉自己很糟糕
+，告诉大人！
+
+在你碰到问题是，有很多人可以帮你。如果大人把他们的问题怪罪到你头上，你必须说出来并寻求帮助！
 RP:  What if your uncle yells at you when you are visiting.  Who would you tell?
 
 What if you told me and I was not really paying attention?
