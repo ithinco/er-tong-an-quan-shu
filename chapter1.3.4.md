@@ -38,7 +38,7 @@ We've talked about taking care of yourself and speaking up for yourself whenever
 
 #### 角色扮演
 
-
+假如有人对你说：”你很笨。“你会觉得受伤吗？
 What if someone says to you, "You're stupid," does that hurt?
 
 What about if they say to you, "You can't do anything right," or, "You're a bad kid," does that hurt?
