@@ -79,8 +79,7 @@
 
 记住，如果有人要你保守秘密，你要说：“我会告诉大人。我不保密。”
 
-RP:   What if your sitter wants you to take a bath with her and tells you not to say anything to anyone?
-Is that a secret or a surprise? It's a secret, and you should say "no."
+**角色扮演**：假如你的保姆想要你和她一起洗澡，还要你不能告诉任何人，这是秘密还是惊喜？这是秘密，你应该说“不”。
 
 RP:  What if a neighbor wants you to come over to the house to see her new game room, but she tells you that you can't tell anyone about it?  Is that a secret or a surprise?
 
