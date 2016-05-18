@@ -53,9 +53,9 @@ You want to create an absolutely clear progress here for children. First they sa
 What if he says to you, "Don't you like me? If you liked me you'd sit here with me."  What would you  say and do?
 **角色扮演**：假如你在朋友家看电视，朋友的哥哥想要和你靠得很近，你告诉他，你觉得这样很不舒服，但他依然这么做，你会怎么说，怎么做？
 
-在这里，你需要让孩子对事情的进展有清楚的认识。首先孩子要说“不”，包括合适的肢体语言。然后他们说：“我会告诉大人”，然后就告诉大人。
+在这里，你需要让孩子对事情的进展有清楚的认识。首先孩子要说“不”，包括合适的肢体语言。然后说：“我会告诉大人”，再然后就告诉大人。
 
-假如他对你说：“你不喜欢我？如果你喜欢我，我们就坐在一起。”你会怎么说，怎么做？
+假如他对你说：“你不喜欢我吗？如果你喜欢我，我们就坐在一起。”你会怎么说，怎么做？
 
 RP:   What if you were taking gymnastics and the man who teaches the class always tickles your face with his mustache?  You ask him to stop but he keeps doing it. What would you say and do?
 What if when you say "I'm going to tell," he says, "Go ahead and tell, I don't care."  What would you say and do?  Do you think your mom or dad or teacher would care? Sure they would.
