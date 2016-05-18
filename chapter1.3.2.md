@@ -60,7 +60,7 @@
 Say "no" with words and body language, and go back to play with your friend or go home.  Would you also tell me when you get home?
 **角色扮演**：假如你朋友的哥哥上下摸你，让你觉得非常不舒服，当你要他停止这么做时，她说“教你大孩子的玩耍方式”，你会怎么说，怎么做？
 
-对他说“不”，人去和你朋友玩或回家。你回家后会告诉我这件事吗？
+> 对他说“不”，人去和你朋友玩或回家。你回家后会告诉我这件事吗？
 
 RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
 
