@@ -89,12 +89,6 @@
 假如你告诉的那个人对你说：“他们不是想要伤害你。”这时你会怎么做？“
 
 对了，你应该告诉大人！
-RP:   What if someone said to you, “If you tell, I’ll hurt you or someone in your family?
-This is a threat and you should never try to take care of something like this by yourself. No matter how scared you are, you need to tell a grownup who can help you. If the first person you tell doesn't help, keep telling until someone does help you.
-Would it be scary if someone said something like that to you? 
-What would you do?   That's right, you'd tell someone.
-What if the person you told said something like, "Oh, they don't mean any harm."  Then what would you do?
-That's right, you'd tell someone else!
 
 
 
