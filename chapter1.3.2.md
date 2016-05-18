@@ -54,16 +54,25 @@
 > 看着她说“不”，退后。然后告诉大人或打电话给我，让我来接你。
 
 RP:   What if the swimming teacher is putting sunscreen on your back? You feel uncomfortable and ask him to stop, he says "Oh, it's all right.   I'm just trying to protect you.  What would you say and do?
+角色扮演：假如游泳老师在你背后涂防晒霜，而你觉得不舒服，让他停下来，这时他说：“哦，没事。我只是想保护你。”你会怎么说，怎么做？
 
  RP:   What if the big brother of one of your friends is wrestling with you. He is touching you all over and makes you feel really uncomfortable? When you ask him to stop, he says he's "teaching you how big kids play." What would you say and do?
 
 Say "no" with words and body language, and go back to play with your friend or go home.  Would you also tell me when you get home?
+角色扮演：假如你朋友的哥哥上下摸你，让你觉得非常不舒服，当你要他停止这么做时，她说“教你大孩子的玩耍方式”，你会怎么说，怎么做？
+
+对他说“不”，人去和你朋友玩或回家。你回家后会告诉我这件事吗？
 
 RP:   What if a grownup you know tries to kiss you on the lips and you don't like it?   What would you say and do?
 
 What if when you ask them to stop, they say, "It's all right, this is just my way of showing you how much I love you."
 
 If it's not okay with you, is it okay for the grownup to do that?
+角色扮演：假如你认识的一个大人想要亲你的嘴，而你不喜欢这样，你会怎么说，怎么做？
+
+假如在你要他们停止这么做时，他们说：“没事，你看我有多爱你啊。”
+
+如果你觉得这么做不合适，大人这么做合适吗？
 
 #### 没有秘密原则
 
