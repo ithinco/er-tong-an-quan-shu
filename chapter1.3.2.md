@@ -85,9 +85,9 @@
 
 这是秘密，你应该说“不”。另外，在你去任何人家里之前，你是不是都要问我？
 
-RP:   What if your dad's boss comes to visit and gives you money but tells you not to tell your dad? What would you say and do?
+**角色扮演**：假如你爸爸的领导来你家，还给你钱，但要求你不能告诉爸爸，你会怎么说，怎么做？
 
-Say "no" and tell me.
+> 说“不”，然后告诉我。
 
 RP:   What if I say I'll give you a new video game if you keep it a secret?  What about new sneakers, a new bike, or a new pet?  Is there anything I could give you to get you to keep a secret?
 
