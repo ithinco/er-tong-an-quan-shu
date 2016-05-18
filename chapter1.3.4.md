@@ -58,11 +58,9 @@
 
 这是不是代表你做错了什么事？
 
-角色扮演：假如你朋友的姐姐
+**角色扮演**：假如每次当你路过朋友家时，他姐姐都对你不好，还掐你，掐得皮肤都青了。让我看看你会怎么告诉我发生了什么事，这样我才能帮助你。
 
-要掩饰获得关注和说出事情的完整过程。
-RP:  What if the big sister of one of your friends is always mean to you when you go over to her house.  She pinches you so hard she leaves bruises.  Show me how you would tell me what is happening so I can help? 
-Actually go through the process of getting your attention and telling.
+要演示获得关注并说出事情的完整过程。
 
 RP:  What if your dad always comes home from work in a bad mood.  He jumps on your for every little thing.  You know he is having a hard time at work, but you also want to talk to someone about it.  What would you do?
 Once again, go through the entire process.
