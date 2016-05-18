@@ -61,3 +61,11 @@
 ##### PLACEHOLDER
 
 ##### PLACEHOLDER
+
+#### 贡献者名单
+
+@ithinco
+@贾西贝
+@Benjamin Cao
+@胡夫子
+@何无鱼
