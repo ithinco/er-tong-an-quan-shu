@@ -68,10 +68,6 @@
 
 假如你说：“我会告诉大人”时，他说：“你在我家就得守我家的规矩。如果你不喜欢这样，你就得另外找个朋友了。”你会怎么做？
 
-RP:   What if your babysitter gives you an extra special good night hug and kiss and asks you to keep it a secret?  What should you do?
-Hugs and kisses should never have to be a secret. If someone asks you to keep hugs or kisses a secret, tell right away.
-Would it be hard to tell?
-Would you tell anyway?
 **角色扮演**：假如你的保姆给了你一个特别的晚安抱和亲亲，并要求你保密，你会怎么做？
 
 拥抱和亲亲永远都不该是秘密。如果有人要你为拥抱或亲亲保密，直接说出来。
