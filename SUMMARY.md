@@ -1,6 +1,6 @@
 ### 预防儿童虐待系列
 
-[儿童安全课——综述](chapter1.md)
+[预防儿童虐待系列——综述](chapter1.md)
 
 #### 课程讲义
 
@@ -26,7 +26,7 @@
 
 ### 陌生人安全系列
 
-[placeholder](chapter1.md)
+[与陌生人有关的安全问题——综述](chapter2.md)
 
 #### 课程讲义
 
@@ -59,3 +59,11 @@
 ##### PLACEHOLDER
 
 ##### PLACEHOLDER
+
+#### 贡献者名单
+
+@ithinco
+@贾西贝
+@Benjamin Cao
+@胡夫子
+@何无鱼
