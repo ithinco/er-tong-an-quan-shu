@@ -15,6 +15,7 @@
 #### 大人须知
 
 "What if..." is a teaching game that uses the spontaneous questions of the children and your own "What if..." questions as a springboard for discussion.  By encouraging children to talk about their thoughts, and by discussing your own reactions and ideas to a "What if..." question, you and your children have an opportunity to think through and establish a variety of possible responses.
+“假如”
 
 The "What if..."Game helps children to anticipate and plan.  It is this aspect of the Game that makes it the single most valuable tool you have for teaching personal safety to your children and for encouraging ongoing reinforcement and participation.
 
@@ -32,21 +33,19 @@ By listening to your child’s ideas, you get accurate information about concern
 
 #### 孩子须知
 
-我们在过去几天里已经完了不少“假如”游戏，来学习和陌生人有关的原则。现在我们要玩新的“假如”游戏。
+在过去几天里，我们已经玩了不少“假如”游戏来学习和陌生人有关的原则。现在我们要玩新的“假如”游戏。
 
 假如你在一个商场里迷路了，你会怎么做？
 
-这一介绍专注于儿童，在观看视频前。
-
-你哦碰到过这样的情况吗？
+你碰到过这样的情况吗？
 
 你是怎么做的？
 
 你当时是什么感觉？
 
-伤心是很常见的感觉。
+> 伤心是很常见的感觉。
 
-让我们一起来看视频，看里面的孩子们是怎么做的。
+让我们一起来看视频，看视频里面的孩子们是怎么做的。
 
 #### 和孩子一起看视频
 
