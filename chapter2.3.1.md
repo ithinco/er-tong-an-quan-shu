@@ -33,11 +33,9 @@ Our intention in this program is to shift the emphasis from the negative to the 
 
 ### 传统方法
 
-In the past, we have taught children that there are good strangers and bad strangers.  We have told them to watch out for bad strangers, often including a list of things that bad strangers might do, such as offering them candy, asking them to help find a lost dog, or asking to photograph them for a fashion job.
-过去，我们告诉孩子，陌生人有好坏之分，孩子要警惕坏人。当然，就连我们大人也不可能做到这一点。尽管成年人认可这套陌生人理论，但孩子却总会产生误解。这让他们处于危险境地。被绑架的儿童多是被一个举止“和善”的人引诱进一个看似无害的场景。由于儿童是自愿前行，当察觉错误时，往往为时已晚。
+过去，我们告诉孩子，陌生人有好坏之分，孩子要警惕坏人。我们告诉孩子们要留意坏人，坏人通常会给他们糖果，让他们帮忙找丢失的狗狗等等。
 
-Children, thinking they know what we mean, are watching out for the bad strangers.  This only increases their vulnerability because it makes it easy for someone who looks and acts nice to lure them into a seemingly innocent situation.
-孩子必须知道陌生人到底是谁。他们需要准确的信息和具体的指导，在保护自己的同时，又能让自己有能力在生活中自由行动。
+孩子以为理解了我们的意思，就专心留意坏人。这只会让孩子们更容易陷入危险境地，被一个举止“和善”的人引诱进一个看似无害的场景中。
 
 对陌生人的普遍误解还存在着另一个同样重大的隐患。孩子会害怕，他们的生活也蒙上了一层恐惧的阴影。当我们这么对孩子们说：“不要上陌生人的车，他们可能会把你带走，让我们再也看不到你。”我们在孩子们的脑海里植入了一个可怕的可能性场景。我们让他们感觉渺小、脆弱，夺走了孩子们在成长的过程中感觉安全和关心的能力。
 
