@@ -96,8 +96,10 @@
 
 谁更重要，你还是你的玩具？
 
-重复
-重复
+If something happened to your toy, could we go to the store and buy another one?
+
+If something happened to you, could we go to the store and buy you again?
+So, you're more important aren't you?
 
 **角色扮演**：假如你正在外面玩自己最喜欢的玩具，这时有个陌生人过来跟你说：“好漂亮的玩具！我能看看吗？”你会怎么做？
 
