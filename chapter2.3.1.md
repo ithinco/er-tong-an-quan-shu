@@ -6,7 +6,6 @@
 
 #### 目标
 
-Objectives
 To clarify what a stranger is and what rules to follow in a wide variety of situations.
 To establish that children can and must be responsible for themselves when they are by themselves.
 To review the four basic rules children should follow with strangers when they are by themselves:
