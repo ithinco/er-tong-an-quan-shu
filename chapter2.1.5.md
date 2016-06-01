@@ -14,16 +14,16 @@
 
 #### 大人须知
 
-"What if..." is a teaching game that uses the spontaneous questions of the children and your own "What if..." questions as a springboard for discussion.  By encouraging children to talk about their thoughts, and by discussing your own reactions and ideas to a "What if..." question, you and your children have an opportunity to think through and establish a variety of possible responses.
-“假如”
+“假如”教学游戏运用了孩子自然产生的问题，以及你在和孩子讨论时萌生的“假如”问题。通过鼓励孩子们谈论自己的想法，讨论你对“假如”问题的反应和想法，你和你的孩子将有机会考虑周全，并建立多种可能的反应机制。
 
-The "What if..."Game helps children to anticipate and plan.  It is this aspect of the Game that makes it the single most valuable tool you have for teaching personal safety to your children and for encouraging ongoing reinforcement and participation.
+“假如”游戏能帮助孩子们预测和规划。这是“假如”游戏最具价值的地方，它能教育孩子个人安全的知识，鼓励持续加深学习和参与。
 
-The purpose of any "What if..." Game is to: 
+“假如”游戏的目的是：
 
-1. Find out what children are thinking.
-2. Talk about possible solutions to a question or problem.
-3. Agree on a solution that seems best and, from that, establish working guidelines for what children should do in that particular situation.]
+1. 了解孩子的想法。
+2. 讨论问题的可能解决方案。
+3. 找出最佳的解决方案，建立孩子在某一特定情况下应该遵守的行动指南。
+
 
 Children ask "What if..." questions that reflect their own fears, concerns, and anxieties.  Children are constantly exposed to reports of situations that they then apply to themselves. For example, they see the story of a missing or kidnapped child in the news and wonder if such a thing could happen to them. Children often translate these thoughts into "What if..." questions. They might say, "What if I was playing in the yard and that kidnapper came around?"
 
