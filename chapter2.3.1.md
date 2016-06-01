@@ -24,18 +24,31 @@ Missing children have become a part of daily life. While statistics are inconsis
 
 Our intention in this program is to shift the emphasis from the negative to the positive, focusing on the child’s ability to learn and use specific safety skills.
 
-The Traditional Approach
+### 传统方法
+
 In the past, we have taught children that there are good strangers and bad strangers.  We have told them to watch out for bad strangers, often including a list of things that bad strangers might do, such as offering them candy, asking them to help find a lost dog, or asking to photograph them for a fashion job.
+过去，我们告诉孩子，陌生人有好坏之分，孩子要警惕坏人。当然，就连我们大人也不可能做到这一点。尽管成年人认可这套陌生人理论，但孩子却总会产生误解。这让他们处于危险境地。被绑架的儿童多是被一个举止“和善”的人引诱进一个看似无害的场景。由于儿童是自愿前行，当察觉错误时，往往为时已晚。
 
 Children, thinking they know what we mean, are watching out for the bad strangers.  This only increases their vulnerability because it makes it easy for someone who looks and acts nice to lure them into a seemingly innocent situation.
-There is another equally important problem with this misunderstanding. This approach makes children afraid, and that fear limits their lives. When we say things to them like, "Don't ever get in a stranger's car because they might take you away and we'll never see you again," we create in their minds a new and frightening possibility. We make them feel small and weak, and we take away their ability to grow up feeling safe and cared for.
+孩子必须知道陌生人到底是谁。他们需要准确的信息和具体的指导，在保护自己的同时，又能让自己有能力在生活中自由行动。
 
-The Safe Child Program Approach
+对陌生人的普遍误解还存在着另一个同样重大的隐患。孩子会害怕，他们的生活也蒙上了一层恐惧的阴影。当我们这么对孩子们说：“不要上陌生人的车，他们可能会把你带走，让我们再也看不到你。”我们在孩子们的脑海里植入了一个可怕的可能性场景。我们让他们感觉渺小、脆弱，夺走了孩子们在成长的过程中感觉安全和关心的能力。
+
+### 儿童安全课的方法
+
 The Safe Child approach to teaching children to prevent abuse by strangers is a two-part process that addresses how children think and how they act.  It requires preparing them to actually protect themselves while, at the same time, developing and enhancing their perception of their own well-being.
 
 Children need to know who strangers really are. They need accurate information and specific guidelines that will limit their vulnerability, while maintaining their ability to move about freely, without fear or anxiety, in their everyday lives.
 
 This program is designed to allow you to address both the real and imagined issues for children. It highlights and clarifies the typical misunderstandings children have about strangers - misunderstandings which increase their risk - as it teaches new techniques for safety. It strengthens and focuses the child's sense of competency and control. It teaches children to think about the decisions they make, to act quickly and consistently in specific situations, to recognize when they need help and where to get it.
+
+儿童安全课程的设计理念是，为儿童提供陌生人教育，但不向他们灌输“世界充满想要伤害他们的坏人”这种理念。儿童学习自救的愿望十分强烈。这也是自然的成长过程之一。诚然，和儿童在一起时，成年人要对他们负责，但当儿童独处或是和朋友在一起时，他们能够也必须对自己的安全负责。儿童安全课可以帮助孩子实现这一目标。
+
+吓唬不管用。吓唬只会让孩子胆怯、麻木，而不能保护孩子，使他们安心。举个例子，你警告孩子：“不能要陌生人给的糖，糖里可能有毒。”这是一种可怕却无效的做法，因为孩子不理解这句话的真正含义。结果，孩子不是因为觉得“一个好人不可能对我下毒”，要了陌生人的糖，就是反应过度，谁给的任何东西都不要。
+
+我们教孩子如何在游泳和过马路时不害怕。我们不会为了保证孩子过马路时的安全，就给他们讲粗心司机撞死小孩的恐怖故事。相反，我们教育孩子基本的准则，以应对潜在的危险情况。儿童安全课采取的正是同一种理性的办法。
+
+孩子们需要明白，陌生人不过是自己不认识的人，他们在生活中每天都会遇到陌生人。当儿童在没有成年人看护并遭遇陌生人时（如在外面或公园里玩耍时），儿童没必要害怕，但应当遵守必要的安全准则。遭遇陌生人时的安全概念和准则既简单又直白，成年人在进行教育时，切勿惊吓儿童或加入恐怖故事。儿童从3岁起就应开始使用这些准则，并且随着年龄的增长对准则做出调整。这些准则包括：
 
 Children who have thought about their own safety with strangers, who understand what we want them to do, and who have practiced the techniques will be able to use the rules when they are needed -without anxiety. They will not only feel safer, they will safer!
 
