@@ -69,10 +69,11 @@ Watch videotape with child
 
 你还记得第一条原则吗？
 
-It's called the "Arm's Reach Rule." We also call it the "Circle of Safety."
-第一条原则是“”
+第一条原则是“与陌生人保持一米远”，我们也称它为“安全圈”。
 
 Demonstrate: the length of a grownup's arm plus how far you can reach, plus a little bit more. Also demonstrate the imaginary "Circle of Safety”.
+演示：
+
 RP:   What if someone comes into your yard and says, "Hi, I'm looking for the Smith house. Do you know where they live?" What would you say and do?
 Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
 RP:  What if a stranger came up to you and said, "Hi, you don't know me, but I just moved in across the street. What's your name?" What would you say and do?
