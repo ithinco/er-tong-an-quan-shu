@@ -61,11 +61,17 @@ Watch videotape with child
 
 #### 角色扮演
 
-What's a stranger?
-Can you tell by looking at someone if they are a nice person or not?
-When you're all by yourself or with your friends, who's responsible for your safety?
-Do you remember the first rule?
+什么是陌生人？
+
+你能通过外貌来分辨好人坏人吗？
+
+当你独自一人或和朋友在一起时，谁对你的安全负责？
+
+你还记得第一条原则吗？
+
 It's called the "Arm's Reach Rule." We also call it the "Circle of Safety."
+第一条原则是“”
+
 Demonstrate: the length of a grownup's arm plus how far you can reach, plus a little bit more. Also demonstrate the imaginary "Circle of Safety”.
 RP:   What if someone comes into your yard and says, "Hi, I'm looking for the Smith house. Do you know where they live?" What would you say and do?
 Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
