@@ -71,8 +71,7 @@ Watch videotape with child
 
 第一条原则是“与陌生人保持一米远”，我们也称它为“安全圈”。
 
-Demonstrate: the length of a grownup's arm plus how far you can reach, plus a little bit more. Also demonstrate the imaginary "Circle of Safety”.
-演示：
+演示：一米远是指成年人手臂的长度加上成年人弯腰后能够碰触到的距离再延伸一点点。另外也演示想象的“安全圈”。
 
 RP:   What if someone comes into your yard and says, "Hi, I'm looking for the Smith house. Do you know where they live?" What would you say and do?
 Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
