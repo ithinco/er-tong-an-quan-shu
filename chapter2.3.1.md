@@ -18,8 +18,8 @@
 * 不和陌生人去任何地方。
 * 
 复习如何以及去哪里获得帮助。
-To enhance feelings of competence and to reduce fear and anxiety about strangers.
-增强
+
+增强儿童的能动感，减少对陌生人的害怕和焦虑。
 
 #### 大人须知
 
