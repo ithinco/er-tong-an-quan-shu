@@ -44,7 +44,9 @@ Children who have thought about their own safety with strangers, who understand 
 We're going to watch this video and then talk about strangers and some rules you should follow to help keep you safe.
 Watch videotape with child
 
-Role-play
+#### 和孩子一起看视频
+
+#### 角色扮演
 
 What's a stranger?
 Can you tell by looking at someone if they are a nice person or not?
