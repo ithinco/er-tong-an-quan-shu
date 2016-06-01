@@ -6,9 +6,11 @@
 
 #### 目标
 
-To clarify what a stranger is and what rules to follow in a wide variety of situations.
-To establish that children can and must be responsible for themselves when they are by themselves.
-To review the four basic rules children should follow with strangers when they are by themselves:
+让孩子清楚地知道什么是陌生人，在多种情况下该遵循哪些原则。
+
+建立当孩子独处时，孩子能且必须为自己负责的观念。
+
+复习当孩子独处时，应该遵循的四大基本原则：
 Stay an arm's reach away.
 Don't talk.
 To review where and how to get help.
