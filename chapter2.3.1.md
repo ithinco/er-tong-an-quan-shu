@@ -14,7 +14,7 @@ Don't talk.
 To review where and how to get help.
 To enhance feelings of competence and to reduce fear and anxiety about strangers.
 
-Introduction for adult
+#### 大人须知
 
 NOTE:  There is a lot of material in the 3 sessions for this age group.  Feel free to introduce it over a number of days.  Follow your child’s lead in terms of interest and understanding of how to apply the rules.
 
@@ -39,7 +39,8 @@ This program is designed to allow you to address both the real and imagined issu
 
 Children who have thought about their own safety with strangers, who understand what we want them to do, and who have practiced the techniques will be able to use the rules when they are needed -without anxiety. They will not only feel safer, they will safer!
 
-Introduction for child
+#### 孩子须知
+
 We're going to watch this video and then talk about strangers and some rules you should follow to help keep you safe.
 Watch videotape with child
 
