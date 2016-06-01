@@ -1,6 +1,10 @@
-Safety Around Strangers
-7-8-9 Year Olds
-Day 1 of 4
+### 与陌生人有关的一切
+
+### 七岁到九岁儿童
+
+### 第一天课程
+
+#### 目标
 
 Objectives
 To clarify what a stranger is and what rules to follow in a wide variety of situations.
