@@ -14,9 +14,21 @@
 
 #### 大人须知
 
-前两项原则旨在教育孩子们在独处时保持警觉，后两条原则的重点是降低虐待或绑架的实际可能性。这些原则能加强孩子的能力，让他们在独处时不和陌生人搅和在一起。
+"What if..." is a teaching game that uses the spontaneous questions of the children and your own "What if..." questions as a springboard for discussion.  By encouraging children to talk about their thoughts, and by discussing your own reactions and ideas to a "What if..." question, you and your children have an opportunity to think through and establish a variety of possible responses.
 
-记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。永远也不要恐吓、吓唬或制造焦虑。积极！积极！积极！
+The "What if..."Game helps children to anticipate and plan.  It is this aspect of the Game that makes it the single most valuable tool you have for teaching personal safety to your children and for encouraging ongoing reinforcement and participation.
+
+The purpose of any "What if..." Game is to: 
+
+1. Find out what children are thinking.
+2. Talk about possible solutions to a question or problem.
+3. Agree on a solution that seems best and, from that, establish working guidelines for what children should do in that particular situation.]
+
+Children ask "What if..." questions that reflect their own fears, concerns, and anxieties.  Children are constantly exposed to reports of situations that they then apply to themselves. For example, they see the story of a missing or kidnapped child in the news and wonder if such a thing could happen to them. Children often translate these thoughts into "What if..." questions. They might say, "What if I was playing in the yard and that kidnapper came around?"
+
+If you can resist the urge to answer and instead let the child answer the question first, you will discover how the child thinks, what his or her concerns are, how s/he solves problems, how s/he think the world works, and what s/he knows and doesn't know about staying safe.
+
+By listening to your child’s ideas, you get accurate information about concerns and can better teach the skills that are at the very heart of effective prevention, that is, the ability to think, to act, to react, to recognize when they need help and how to get it.
 
 #### 孩子须知
 
