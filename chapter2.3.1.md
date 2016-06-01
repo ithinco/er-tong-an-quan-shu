@@ -11,10 +11,10 @@
 建立当孩子独处时，孩子能且必须为自己负责的观念。
 
 复习当孩子独处时，应该遵循的四大基本原则：
-Stay an arm's reach away.
-Don't talk.
-To review where and how to get help.
+
+复习如何以及去哪里获得帮助。
 To enhance feelings of competence and to reduce fear and anxiety about strangers.
+增强
 
 #### 大人须知
 
