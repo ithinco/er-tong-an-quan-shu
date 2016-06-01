@@ -48,9 +48,9 @@ By listening to your child’s ideas, you get accurate information about concern
 
 让我们一起来看视频，看里面的孩子们是怎么做的。
 
-重复
+#### 和孩子一起看视频
 
-角色扮演
+#### 角色扮演
 
 如果你迷路了，你会怎么做？
 
