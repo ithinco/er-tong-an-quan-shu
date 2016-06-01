@@ -96,14 +96,15 @@
 
 谁更重要，你还是你的玩具？
 
-If something happened to your toy, could we go to the store and buy another one?
+如果你的玩具出了问题，是不是可以去商店再买一个？
 
-If something happened to you, could we go to the store and buy you again?
-So, you're more important aren't you?
+如果你出了问题，我们可以去商店再买一个你吗？
+
+所以你要更重要，知道吗？
 
 **角色扮演**：假如你正在外面玩自己最喜欢的玩具，这时有个陌生人过来跟你说：“好漂亮的玩具！我能看看吗？”你会怎么做？
 
-阻止他们在做的事情，站起来，往后退并注意观察。着对于孩子来说很难，你要温和地和孩子一起学习整个流程，以便他们在遇到这一情况时能按原则行事。
+> 阻止他们在做的事情，站起来，往后退并注意观察。着对于孩子来说很难，你要温和地和孩子一起学习整个流程，以便他们在遇到这一情况时能按原则行事。
 
 假如陌生人捡起你的玩具，说：“我觉得你应该把玩具拿回家去。”你会怎么做？
 
