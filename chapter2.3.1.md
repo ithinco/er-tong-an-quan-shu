@@ -12,6 +12,11 @@
 
 复习当孩子独处时，应该遵循的四大基本原则：
 
+* 与陌生人保持一米远。
+* 不和陌生人谈话。
+* 不要陌生人给的任何东西，就算是自己的东西也不要。
+* 不和陌生人去任何地方。
+* 
 复习如何以及去哪里获得帮助。
 To enhance feelings of competence and to reduce fear and anxiety about strangers.
 增强
