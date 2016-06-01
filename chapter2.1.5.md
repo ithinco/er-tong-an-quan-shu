@@ -24,12 +24,11 @@
 2. 讨论问题的可能解决方案。
 3. 找出最佳的解决方案，建立孩子在某一特定情况下应该遵守的行动指南。
 
+孩子们会问反映自己害怕、担忧和焦虑情绪的“假如”问题。他们会经常看到也可能发生在自己身上的事情的报道，比如，当他们在新闻中看到有孩子失踪或绑架时，会想“假如”这种事情发生在自己身上呢？他们也许会说：“假如我在外面玩游戏，有人贩子过来了呢？”
 
-Children ask "What if..." questions that reflect their own fears, concerns, and anxieties.  Children are constantly exposed to reports of situations that they then apply to themselves. For example, they see the story of a missing or kidnapped child in the news and wonder if such a thing could happen to them. Children often translate these thoughts into "What if..." questions. They might say, "What if I was playing in the yard and that kidnapper came around?"
+如果你能先让孩子回答，就会发现孩子的想法，他们的担忧、解决问题的方式、对世界的看法以及是否充分了解保持自身安全的知识。
 
-If you can resist the urge to answer and instead let the child answer the question first, you will discover how the child thinks, what his or her concerns are, how s/he solves problems, how s/he think the world works, and what s/he knows and doesn't know about staying safe.
-
-By listening to your child’s ideas, you get accurate information about concerns and can better teach the skills that are at the very heart of effective prevention, that is, the ability to think, to act, to react, to recognize when they need help and how to get it.
+通过倾听你孩子的想法，你就能精确了解孩子的担心，更好地教授能有效预防此类事情发生的技能，即让孩子在需要帮助时，具备思考、行动、反应和获得帮助资源的能力。
 
 #### 孩子须知
 
