@@ -60,7 +60,6 @@ Children who have thought about their own safety with strangers, who understand 
 #### 孩子须知
 
 We're going to watch this video and then talk about strangers and some rules you should follow to help keep you safe.
-Watch videotape with child
 
 #### 和孩子一起看视频
 
