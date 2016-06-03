@@ -19,7 +19,7 @@
 To continue to allay concerns and put forth the idea that strangers are not bad, they are just people you  don't know.
 To role-play the rules so children have an opportunity to demonstrate mast techniques.
 
-Introduction for adult
+#### 大人须知
 
 Remember, role-playing is acting out so children learn the skill, not just the concept.
 
