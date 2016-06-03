@@ -17,6 +17,7 @@
 4. 不和陌生人去任何地方。
 
 To continue to allay concerns and put forth the idea that strangers are not bad, they are just people you  don't know.
+
 To role-play the rules so children have an opportunity to demonstrate mast techniques.
 
 #### 大人须知
