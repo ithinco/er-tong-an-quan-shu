@@ -23,7 +23,7 @@ To role-play the rules so children have an opportunity to demonstrate mast techn
 
 Remember, role-playing is acting out so children learn the skill, not just the concept.
 
-Introduction for child
+#### 孩子须知
  
 Today we are going to learn two new rules.
 
