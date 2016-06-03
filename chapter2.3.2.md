@@ -1,8 +1,11 @@
-Safety Around Strangers
-7-8-9 Year Olds
-Day 2 of 3
+### 与陌生人有关的一切
 
-Objectives
+### 七岁到九岁儿童
+
+### 第二天课程
+
+#### 目标
+
 To review Rules 1 and 2:
 
 1. Stay an arm's reach away.
