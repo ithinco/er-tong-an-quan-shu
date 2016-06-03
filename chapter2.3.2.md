@@ -6,16 +6,16 @@
 
 #### 目标
 
-To review Rules 1 and 2:
+复习原则 1 和原则 2：
 
-1. Stay an arm's reach away.
-2. Don't talk to strangers.
+1. 与陌生人保持一米远。
+2. 不和陌生人谈话。
 
-To teach Rules 3 and 4:
+教授原则 3 和原则 4：
 
-3. Don't take anything from strangers.
-4. Don't go anywhere with  someone you don't  know.
-
+3. 不要陌生人给的任何东西，就算是自己的东西也不要。
+4. 不和陌生人去任何地方。
+5. 
 To continue to allay concerns and put forth the idea that strangers are not bad, they are just people you  don't know.
 To role-play the rules so children have an opportunity to demonstrate mast techniques.
 
