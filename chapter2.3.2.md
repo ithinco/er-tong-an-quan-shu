@@ -27,9 +27,10 @@ Remember, role-playing is acting out so children learn the skill, not just the c
  
 Today we are going to learn two new rules.
 
-Watch videotape with child
+#### 和孩子一起看视频
 
-Role-play
+#### 角色扮演
+
 Do you remember Rule #3?
 The third rule is: you don't take anything from someone you don't know, not even something that belongs to you or to your family.
 RP:  What if a UPS delivery person comes and wants to give you a package? Do you take it?
