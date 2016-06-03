@@ -15,7 +15,7 @@
 
 3. 不要陌生人给的任何东西，就算是自己的东西也不要。
 4. 不和陌生人去任何地方。
-5. 
+
 To continue to allay concerns and put forth the idea that strangers are not bad, they are just people you  don't know.
 To role-play the rules so children have an opportunity to demonstrate mast techniques.
 
