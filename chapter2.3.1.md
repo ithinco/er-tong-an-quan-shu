@@ -23,6 +23,18 @@
 
 #### 大人须知
 
+孩子们对陌生人还是相当有意识的，也会担心陌生人可能会对自己做的事。他们渴望学习照顾自己的方法，并准备好了让自己的问题和担忧得到回答。
+
+儿童失踪已经成为日常生活的一部分。虽然没有具体的统计数字来定义这一问题的量级，但我们知道一些孩子遭到了陌生人的绑架和虐待。我们也能看到这些失踪儿童的照片。孩子们看到这些失踪儿童的照片，也会想如果这件事发生在自己身上会怎么样。如果问题没有得到解答，这些问题会极大地妨碍孩子自信、安全成长的能力。
+
+本课的意图是将重心从负面转向正面，专注于孩子学习和使用特定安全技能的能力。
+
+儿童安全课的方法是教育孩子们防止遭受陌生人虐待，这一过程分为两部分，既针对孩子们的思维方式，也针对他们的行动方式。本课让孩子们具备保护自己的必备技能，同时开发和增强孩子对自己身心健康的认识。
+
+孩子们需要知道陌生人究竟是什么。他们需要精确的信息和特别的指导方针来减少他们的受害几率，同时又不会妨碍孩子们在日常生活中无忧无虑地自由行动。
+
+本课旨在让你解决孩子遇到的真实问题和想象的问题。它突出并澄清了孩子们对陌生人的通常误解，这些误解会增加孩子们受害的风险，我们还教授安全新技能。本课将加强和专注于培养孩子的能动和控制杆。它会教育孩子们思考自己要做的决定，在特定情况下快速行动，判断需要求助的时机和求助的资源。
+
 NOTE:  There is a lot of material in the 3 sessions for this age group.  Feel free to introduce it over a number of days.  Follow your child’s lead in terms of interest and understanding of how to apply the rules.
 
 Children are quite aware of strangers, and are concerned about what they might do. They are eager to learn how to take care of themselves and are ready to have their questions and concerns answered.
