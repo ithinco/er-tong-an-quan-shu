@@ -55,7 +55,9 @@
 
 #### 课程讲义
 
-##### PLACEHOLDER
+* [第一天课程讲义](chapter2.3.1.md)
+* [第二天课程讲义](chapter2.3.2.md)
+* [第三天课程讲义](chapter2.3.3.md)
 
 ##### PLACEHOLDER
 
