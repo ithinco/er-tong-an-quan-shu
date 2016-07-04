@@ -89,7 +89,8 @@ We're going to watch this video and then talk about strangers and some rules you
 
 演示：一米远是指成年人手臂的长度加上成年人弯腰后能够碰触到的距离再延伸一点点。另外也演示想象的“安全圈”。
 
-RP:   What if someone comes into your yard and says, "Hi, I'm looking for the Smith house. Do you know where they live?" What would you say and do?
+**角色扮演**：假如有人问你：“你知道史密斯家在哪吗？”你会怎么说，怎么做？
+
 Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
 RP:  What if a stranger came up to you and said, "Hi, you don't know me, but I just moved in across the street. What's your name?" What would you say and do?
 Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
@@ -102,11 +103,37 @@ What's more important, being polite or being safe
 RP:  What if the person knows your name and maybe my name?  Does that matter?
 No.  If you don't know the person, follow the rules.
 
-RP:   What if someone comes into your yard and says, "Hi, I'm looking for the Guan house. Do you know where they live?" What would you say and do?
+角色扮演：假如有人问你：“史密斯家在哪你知道吗？”你会怎么说，怎么做？
 
-RP:  What if a stranger came up to you and said, "Hi, you don't know me, but I just moved in across the street. What's your name?" What would you say and do?
+站起来，后退，保持。不要和这个人说话。
 
-RP:  What if someone you don't know comes up to you and says "Hi, I have a little boy just your age. Would you like to come over and play with him some afternoon?"
+角色扮演：假如有陌生人对你说：“我刚刚搬过来，你叫什么名字呀？”你会怎么说，怎么做？
+
+重复
+
+角色扮演：假如有个你不认识的人对你说：“我儿子和你差不多大，你要不要找个时间到我家和他玩啊？”
+
+重复
+
+你也可以回家找爸爸或妈妈出来认识新邻居。
+
+你还记得第二啊跳原则吗？
+
+重复
+
+这么做粗鲁吗？一些人认为这么做很无礼。但你的年纪已经足够大了，可以自己做一些决定了。
+
+有礼貌和安全哪个更重要？
+
+角色扮演：假如对方知道你的名字和我的名字呢？
+
+如果你不认识对方，就按原则行事。
+
+角色扮演：假如有人对你说：“张家在哪你知道吗？”你会怎么说，怎么做？
+
+注意：这些原则的有效性取决于练习。请尽情通过“假如”游戏来评估孩子们运用这些原则的能力。
+
+
 
 
 Note:  The effectiveness of these rules for your child will depend on practice.  Feel free to play the “What if…” Game to assess their ability to actually apply the rules.  
