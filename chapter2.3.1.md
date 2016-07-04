@@ -47,7 +47,7 @@
 
 本课旨在让你解决孩子遇到的真实问题和想象的问题。它突出并澄清了孩子们对陌生人的通常误解，这些误解会增加孩子们受害的风险，我们还教授安全新技能。本课将加强和专注于培养孩子的能动和控制杆。它会教育孩子们思考自己要做的决定，在特定情况下快速行动，判断需要求助的时机和求助的资源。
 
-Children who have thought about their own safety with strangers, who understand what we want them to do, and who have practiced the techniques will be able to use the rules when they are needed -without anxiety. They will not only feel safer, they will safer!
+如果孩子们思考过与陌生人有关的安全问题，理解我们想让他们做什么，并且练习过这些技巧，他们就可以在需要时没有负担地运用这些原则。他们不仅会觉得更安全，而且在事实上也会更安全！
 
 #### 孩子须知
 
