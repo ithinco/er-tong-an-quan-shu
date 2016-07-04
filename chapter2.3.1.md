@@ -110,8 +110,6 @@ RP:  What if the person knows your name and maybe my name?  Does that matter?
 No.  If you don't know the person, follow the rules.
 
 
-你还记得第二啊跳原则吗？
-
 重复
 
 这么做粗鲁吗？一些人认为这么做很无礼。但你的年纪已经足够大了，可以自己做一些决定了。
