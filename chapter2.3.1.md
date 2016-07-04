@@ -91,31 +91,24 @@ We're going to watch this video and then talk about strangers and some rules you
 
 **角色扮演**：假如有人问你：“你知道史密斯家在哪吗？”你会怎么说，怎么做？
 
-Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
-RP:  What if a stranger came up to you and said, "Hi, you don't know me, but I just moved in across the street. What's your name?" What would you say and do?
-Stand up, back up so they are an arm’s length away.  Don’t talk to the person. 
-RP:  What if someone you don't know comes up to you and says "Hi, I have a little boy just your age. Would you like to come over and play with him some afternoon?"
-Stand up, back up so they are an arm’s length away.  Don’t talk to the person.  Maybe come in and ask a parent to come out and meet the new neighbors.  
-Do you remember Rule #2?
+>> 站起来往后退，和陌生人保持一条手臂的距离。不要和这个人说话。
+
+**角色扮演**：假如有陌生人对你说：“我刚刚搬过来，你叫什么名字呀？”你会怎么说，怎么做？
+
+>> 站起来往后退，和陌生人保持一条手臂的距离。不要和这个人说话。
+
+**角色扮演**：假如有个你不认识的人对你说：“我儿子和你差不多大，你要不要找个时间到我家和他玩啊？”
+
+>> 站起来往后退，和陌生人保持一条手臂的距离。不要和这个人说话。你也可以回家叫爸爸或妈妈出来认识新邻居。
+
+你还记得第二条原则吗？
+
 You don't talk to people you don't know when you yourself or with your friends.
 Is that rude? Some people might think so. But, you’re old enough to make some decisions for yourself now.
 What's more important, being polite or being safe
 RP:  What if the person knows your name and maybe my name?  Does that matter?
 No.  If you don't know the person, follow the rules.
 
-角色扮演：假如有人问你：“史密斯家在哪你知道吗？”你会怎么说，怎么做？
-
-站起来，后退，保持。不要和这个人说话。
-
-角色扮演：假如有陌生人对你说：“我刚刚搬过来，你叫什么名字呀？”你会怎么说，怎么做？
-
-重复
-
-角色扮演：假如有个你不认识的人对你说：“我儿子和你差不多大，你要不要找个时间到我家和他玩啊？”
-
-重复
-
-你也可以回家找爸爸或妈妈出来认识新邻居。
 
 你还记得第二啊跳原则吗？
 
