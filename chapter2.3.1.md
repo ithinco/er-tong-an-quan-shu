@@ -103,28 +103,14 @@ We're going to watch this video and then talk about strangers and some rules you
 
 你还记得第二条原则吗？
 
-You don't talk to people you don't know when you yourself or with your friends.
-Is that rude? Some people might think so. But, you’re old enough to make some decisions for yourself now.
-What's more important, being polite or being safe
-RP:  What if the person knows your name and maybe my name?  Does that matter?
-No.  If you don't know the person, follow the rules.
+>> 当自己独处或和朋友在一起时，不和陌生人说话。
 
-
-重复
-
-这么做粗鲁吗？一些人认为这么做很无礼。但你的年纪已经足够大了，可以自己做一些决定了。
+这么做无礼吗？一些人认为这么做很无礼。但你的年纪已经够大了，可以自己作一些决定了。
 
 有礼貌和安全哪个更重要？
 
-角色扮演：假如对方知道你的名字和我的名字呢？
+**角色扮演**：假如对方知道你的名字和我的名字呢？
 
-如果你不认识对方，就按原则行事。
-
-角色扮演：假如有人对你说：“张家在哪你知道吗？”你会怎么说，怎么做？
+>> 如果你不认识对方，就按原则行事。
 
 注意：这些原则的有效性取决于练习。请尽情通过“假如”游戏来评估孩子们运用这些原则的能力。
-
-
-
-
-Note:  The effectiveness of these rules for your child will depend on practice.  Feel free to play the “What if…” Game to assess their ability to actually apply the rules.  
