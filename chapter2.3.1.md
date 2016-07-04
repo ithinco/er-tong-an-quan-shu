@@ -51,7 +51,7 @@ Children who have thought about their own safety with strangers, who understand 
 
 #### 孩子须知
 
-We're going to watch this video and then talk about strangers and some rules you should follow to help keep you safe.
+我们将要讨论和陌生人有关的东西，还有你应该遵守的原则，这样就能让自己安全。
 
 #### 和孩子一起看视频
 
