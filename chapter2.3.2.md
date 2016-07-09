@@ -22,7 +22,7 @@
 
 #### 大人须知
 
-Remember, role-playing is acting out so children learn the skill, not just the concept.
+记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
 
 #### 孩子须知
  
