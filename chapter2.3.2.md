@@ -46,11 +46,11 @@
 
 > 不，这是大人的问题，大人要么自行解决，要么找另一个大人帮忙。
 
-角色扮演：假如你在外面玩自己特别喜欢的东西，这时个你不认识的人过来对你说：”这个东西真可爱！我能看看吗？“你会怎么做？
+**角色扮演**：假如你在外面玩自己特别喜欢的东西，这时个你不认识的人过来对你说：”这个东西真可爱！我能看看吗？“你会怎么做？
 
 孩子应该停下来自己正在做的事，站起来往后退，并注意观察。对于一些孩子来说，要做到这一点非常难，因此要平和地引导孩子，让他们知道自己比玩具重要，教育他们要后退，不管陌生人手里有什么。
 
-角色扮演：假如捡起你在玩得东西并说：“可能要下雨了，你应该带着玩具回家。”你会怎么做？
+**角色扮演**：假如捡起你在玩得东西并说：“可能要下雨了，你应该带着玩具回家。”你会怎么做？
 
 孩子应该多退几步。
 
@@ -58,13 +58,13 @@
 
 和前面一样，孩子应该往后一退，跑进房子，找大人。
 
-角色扮演：假如对方在做禳你感觉害怕的事，你会怎么做？
+**角色扮演**：假如对方在做禳你感觉害怕的事，你会怎么做？
 
 往后退四步，转身去寻求他人帮助。
 
 这应该成为孩子的下意识反应，而这需要练习。以游戏的形式来练习会很有趣和有效。
 
-角色扮演：如果你非常害怕，你怎么做才能引起大人的注意？
+**角色扮演**：如果你非常害怕，你怎么做才能引起大人的注意？
 
 你可以一边跑，一边大声尖叫。
 
@@ -82,61 +82,10 @@
 
 最后一条原则非常好记：
 
-角色扮演：重复
+**角色扮演**：重复
 
-角色扮演：假如你正在学校门口等妈妈来接你，这时有个警察过来对你说：“你妈妈出事了，你现在马上跟我走。”你会怎么做？
+**角色扮演**：假如你正在学校门口等妈妈来接你，这时有个警察过来对你说：“你妈妈出事了，你现在马上跟我走。”你会怎么做？
 
 警察也是陌生人。现实是，任何穿着制服的人在孩子眼里看起来都想警察。孩子们应该知道，在跟其他大人走之前，他们都应该征求自己认识的人的许可才行。
 
 注意：重复
-
-
-
-Do you remember Rule #3?
-The third rule is: you don't take anything from someone you don't know, not even something that belongs to you or to your family.
-RP:  What if a UPS delivery person comes and wants to give you a package? Do you take it?
-
-What if I am in the yard and I say, “It’s okay, you can take it.”  Then is it okay?
-RP:  What if a stranger comes into the yard and says, "Hi (child's name), I'm a friend of your Mom's and she left her keys at my house. Could you give them to her for me please?"
-
-Is this a grownup with a problem? Is it your job to take care of that grownup?
-
-No, it isn't and the grownup should either solve his/her own problem or find another grownup to help solve it.
-
-RP: What if you were sitting in your yard playing thing that was really special to you and someone you didn’t know came up and said, "That's really lovely! Can I look at it?"  What would you do?
-
-The child should stop what s/he is doing, stand up, back up and pay attention.  This can be really hard for some children, so work with them gently to see that they are more than their toys and that you want them to back up, no matter what the stranger has.
-RP:   What if the person picks up something you're playing with and says, "I think it might rain, you should take this into the house." What would you do?
-
-The child should back up several more steps.
-What if the person says, "Well, if you don't care about this, I think I'll take it with me." What would you do?
-Again the child should back up and then run into the house and find an adult.
-RP: What if the person does something that makes you feel afraid, what would you do?
-
-If a stranger keeps getting closer or keeps talking to you, or does anything that makes you nervous or scared, or you think something is wrong, what should you do?
-Back up four steps and then turn around and run to someone who can help them.
-The four steps back should be automatic for children. This means they need to practice. This can be fun and effective on a playground.
-RP:  If you're really scared, what could you do to get a grownup's attention?
-
-You could scream as loud as you can while you are running.
-
-Have the child practice backing up, screaming "I need help," and running.  Probably best to do this in your house!
-
-Children usually run behind bushes, behind a car, etc.   You want to clearly establish that they should run TO someone who can help them. They never run away, they always run to someone. 
-
-When you run, you also need to yell so any grownup you will know something's wrong.
-What would you yell?
-Example: "Mom, there's a man in the yard." It is important for children to be able to scream effectively.
-Okay, last one.  Do you remember Rule #4?
-The last rule is really easy to remember because it rhymes:
-IF YOU DON'T KNOW, DON'T GO!
-RP:  What if you were waiting in your yard for your car pool and a woman you never saw before stopped to say that she was going to drive you to school that day? What would you do? 
-
-What if she had a bunch of the other kids from your school already in the car?  What would you do?
-
-Children tend to think it would be all right to go because there are children they know in the car. It is better for them to let mom or dad know that there is someone else driving that day.
-RP:  What if you were waiting for your mom to pick you up at school and a policeman said “your mom was in an accident and you need to come with me right away?”  What would you do?
-
-Policemen are strangers too. And the reality is that anyone in a uniform may look like a policeman.  Children should know that they always have permission to go and ask someone they know before going with an adult who claims authority over them. 
-
-Note:  The effectiveness of these rules for your child will depend on practice.  Feel free to play the “What if…” Game to assess their ability to actually apply the rules.  
