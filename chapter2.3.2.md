@@ -16,9 +16,9 @@
 3. 不要陌生人给的任何东西，就算是自己的东西也不要。
 4. 不和陌生人去任何地方。
 
-To continue to allay concerns and put forth the idea that strangers are not bad, they are just people you  don't know.
+继续减轻孩子的担忧，加强“陌生人不是坏人，而是自己不认识的人“的观念。
 
-To role-play the rules so children have an opportunity to demonstrate mast techniques.
+通过角色扮演游戏来练习这些原则，以便孩子们有机会来展示自己对这些技巧的掌握程度。
 
 #### 大人须知
 
@@ -31,10 +31,6 @@ Today we are going to learn two new rules.
 #### 和孩子一起看视频
 
 #### 角色扮演
-
-继续减轻孩子的担忧，加强“陌生人不是坏人，而是自己不认识的人的观念。
-
-通过角色扮演游戏来练习这些原则，以便孩子们有机会来展示自己对这些技巧的掌握程度。
 
 还记得第三条原则吗？
 
