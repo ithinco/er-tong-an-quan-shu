@@ -63,7 +63,7 @@
 
 ### 预防欺凌系列
 
-[placeholder](chapter1.md)
+[placeholder](chapter4.md)
 
 #### 课程讲义
 
