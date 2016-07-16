@@ -67,11 +67,6 @@
 
 #### 课程讲义
 
-##### PLACEHOLDER
-
-##### PLACEHOLDER
-
-##### PLACEHOLDER
 
 #### 贡献者名单
 
