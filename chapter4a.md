@@ -20,6 +20,8 @@
 
 此致敬礼，
 
-Sherryll Kraizer博士
+谢里尔·克雷泽尔(Sherryll Kraizer)博士
+
+
 
 
