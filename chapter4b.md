@@ -2,8 +2,6 @@
 
 #### 介绍
 
-By Sherryll Kraizer, Ph.D.
-
 The Take A Stand Program has been created to teach specific interpersonal skills to children and their families.  It has its roots in who children are, what they can do and what they need to know to grow up feeling safe and valued.  
 “欺凌预防项目”旨在向儿童和其家人传授具体的人际交往技能。这个项目致力于以下几点：“谁是儿童”，“儿童和他们家人能做什么”，“儿童如何才能安全成长并且受到重视”。
 “
