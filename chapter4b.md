@@ -14,13 +14,13 @@
 
 #### 预防霸凌中成人的角色
 
-当儿童开始与他人交往时，我们可以开始告诉他们既要做到不欺凌他人，也要保护自己不被欺凌。我们可以教会他们如何使用正确的词语表达自己的情感，限制和改变他们的行为，教会他们如何更好地表达个人情感和愿望。儿童单靠自己无法学会解决这些问题，也不能让他们独自消化情绪，我们应该去引导他们。
+从孩子和别人进行互动的那一刻起，我们就应当教导他们不要欺负别人也不能被别人欺负。我们要展示出恐吓、人际矛盾和暴力是可耻的。我们要主动向孩子提供抚慰的话语，限制并改造孩子的行为，教导孩子恰当的方式来表达情感和愿望。只靠自己，儿童是学不会解决这种问题以及待人接物的方法的。他们需要我们的教育。
 
-When preschoolers begin to call people names or use unkind words, intervene immediately and consistently.  By age 6 or 7, children learn the power of exclusion.  We begin to hear things like, "She's not my friend and she can't come to my party." You can respond with, "You don't have to be friends with her today, but it's not all right to make her feel bad by telling her she can't come to your party."
-如果发现学前年龄的儿童开始直呼别人的名字或者使用一些不友善的词语时，我们应当立即加于干预直到他们改变这一行为。儿童6岁或7岁时，他们就知道排斥他人。我们开始听到一些排斥性话语，比如：“她不是我朋友，她不可以参加我的派对。”这种情况下，您可以这样回应：“你不需要现在和她成为朋友，但是你直接说她不能来参加你的派对会让对方难过的，你这样做是不对的。”
+学前儿童开始骂人或者使用不雅词语时，成年人必须及时并持续地进行干预。儿童在幼儿园就学会了排挤。如果孩子说：“她不是我的朋友，她不能来我的聚会。”你应该回答：“你不非要今天和她做朋友，但如果让她难过就不好了。” 
 
-In the early school years, cliques and little groups develop which can be quite exclusionary and cruel.  Children need to hear clearly from us, "It's not all right to treat other people this way.  How do you think she feels being told she can't play with you?”  Kids don't have to play with everyone or even like everyone, but they can't be cruel about excluding others.
-小学低年级，小孩们就会拉帮结派，形成自己的小团体，但是这样的做法是非常排外的，而且对别的同学也很残忍。这种情况下，我们应该明确地告诉他们：“你这样对待其他同学是不对的，你觉得你同学得知自己不能和你玩会是什么感受？”当然小孩不需要和每一个玩在一起，也没必要喜欢每一个，但是他们不应该残忍地去孤立其他的小孩。
+在小学初年级，小圈子和小团体可能以极端排外且残酷的势头发展下去。我们必须清楚地告诉孩子：“不可以这样对待别人。你觉得当你告诉她不带她一起玩时，她会有什么感受？小孩子不用和所有人在一起玩，甚至不用喜欢所有人，但绝不能残酷地排挤其他人。”
+
+取笑、捉弄和其它形式的霸凌行为必须在早期加以辨认。我们必须明确告诫孩子：“不能这么做。想想她的感受。你应该怎样支援她，让其他孩子知道这样对待她是不对的呢？ 不是施暴者或受害者的儿童在改变其它儿童行为举止的过程中同样扮演着重要的角色。请教育你的孩子维护其他遭遇霸凌的儿童。
 
 Boys who are physically small or weak are more prone to victimization.  Making fun, picking on and other forms of bullying need to be identified in their earliest stages.  The message needs to be crystal clear.  “This is not okay.  Think about how he must feel.  How could you include him and let other kids know it’s not all right to treat others this way?”
 身体瘦小的男孩更容易受到伤害。孩子们应该很早就明白欺凌的各种形式，比如“取消”，“捉弄”。 “这种做法是不对的，想想被孤立的小孩是什么感受。你如何接纳他，并且让其他小孩知道上面对待其他小孩的方式是存在问题的。”这一信息必须非常明确地传达给孩子们。
