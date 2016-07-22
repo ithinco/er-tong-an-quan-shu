@@ -6,8 +6,7 @@
 
 霸凌一般常见于儿童群体中，而通过社区在阻止霸凌上往往能取得显著成效，因此在群体场景下教授预防霸凌的知识最行之有效。考虑到这一点，本课程的所有材料在编写时都做到了便于老师或项目负责人理解和执行。为了辅助教学，课程材料会按照不同的年龄分组在四个方面提供指导：说什么、会有什么反馈 、运用哪些角色扮演游戏以及如何跟进。每一天的课程都会有不同的讨论大纲、角色扮演游戏和跟进活动。它们包含了儿童所有常见和不常见的担忧，并且提供了相配套的解释。
 
-This guide, however, is only a tool.  You should feel free to use the materials in a way that is consistent with your own style and comfort level, and the needs of the children you are working with.  For example, you may break the activities down into smaller parts, adapt the role-plays to your community, or change some of the language to make it more appropriate to the developmental level of your children.
-但是此指导手册只是您的参考工具。您可以根据您自身风格、方便程度及目标儿童群体需求自由使用知道材料。比如：您可以将活动分成更小的部分，改编角色扮演活动，或者为了更好地适合目标儿童的成长水平对部分语言进行加工。
+不过，本手册只是您的参考工具。你可以根据自身风格、适应程度以及目标儿童群体的需求自由使用。比如：你可以将活动分成更小的部分，改编角色扮演游戏，或者为了更好地适合目标儿童的成长水平对部分语言进行加工。
 
 Children are directly affected by their perception of their own well-being.  If we talk to them in a way that makes them feel fearful or insecure, we heighten their sense of vulnerability.  Understanding this is central.  Children who are frightened have fewer options and less self-confidence to handle life events effectively.  On the other hand, when we talk to children in a way that makes them feel confident, capable and informed, they can actually be more effective in protecting themselves.
 儿童对自身的认知直接影响他们本身的情绪。如果我们与他们交流的方式让他们感到恐惧或者不安全，他们会感到更加脆弱。清楚认识到这一点是我们工作的核心。那些受到惊吓的儿童更加缺乏主张，缺乏有效应对生活中突发事件的信心。但是如果我们与他们交流的方式让他们感到自信，有能力和被尊重，他们就能更好地保护自己。
