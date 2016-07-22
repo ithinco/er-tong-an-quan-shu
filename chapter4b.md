@@ -14,8 +14,7 @@
 
 #### 预防霸凌中成人的角色
 
-As soon as children begin to interact with others, we can begin to teach them not to be bullies and not to be bullied.  We can give them words for their feelings, limit and change their behavior, and teach them better ways to express their feelings and wishes.  Children do not learn to solve these kinds of problems and get along by themselves.  We need to teach them.
-当儿童开始与他人互动时，我们可以开始告诉他们既要做到不欺凌他人，也要保护自己不被欺凌。我们可以教会他们如何使用正确的词语表达自己的情感，限制和改变他们的行为，教会他们如何更好地表达个人情感和愿望。我们不应该让儿童自己学会解决问题，独自消化情绪，相反我们应该去引导他们。
+当儿童开始与他人交往时，我们可以开始告诉他们既要做到不欺凌他人，也要保护自己不被欺凌。我们可以教会他们如何使用正确的词语表达自己的情感，限制和改变他们的行为，教会他们如何更好地表达个人情感和愿望。儿童单靠自己无法学会解决这些问题，也不能让他们独自消化情绪，我们应该去引导他们。
 
 When preschoolers begin to call people names or use unkind words, intervene immediately and consistently.  By age 6 or 7, children learn the power of exclusion.  We begin to hear things like, "She's not my friend and she can't come to my party." You can respond with, "You don't have to be friends with her today, but it's not all right to make her feel bad by telling her she can't come to your party."
 如果发现学前年龄的儿童开始直呼别人的名字或者使用一些不友善的词语时，我们应当立即加于干预直到他们改变这一行为。儿童6岁或7岁时，他们就知道排斥他人。我们开始听到一些排斥性话语，比如：“她不是我朋友，她不可以参加我的派对。”这种情况下，您可以这样回应：“你不需要现在和她成为朋友，但是你直接说她不能来参加你的派对会让对方难过的，你这样做是不对的。”
