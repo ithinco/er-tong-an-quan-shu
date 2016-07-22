@@ -1,8 +1,7 @@
 ### 《挺身而出：预防霸凌、人际矛盾和暴力》教师手册
 
 #### 介绍
-
-The Take A Stand Program has been created to teach specific interpersonal skills to children and their families.  It has its roots in who children are, what they can do and what they need to know to grow up feeling safe and valued.  
+ 
 《挺身而出》课程旨在教授儿童及其家人具体的人际交往技能。本课程致力于以下几点：“儿童及其家人能做什么”，“儿童如何才能安全成长并且感觉受到重视”。
 
 Because bullying is an activity that takes place among children and because stopping bullying is something most successfully accomplished in the community, the most effective way to teach prevention of bullying is in a group situation.  For that reason, the materials are written in a format that is user-friendly for teachers or group leaders.  To assist you in this process, the guides for each age group will walk you through what to say, what responses to expect, what role-plays to use and how to follow up.  Each day provides discussion outlines, role-plays and follow-up activities. It covers all the common - and some not so common - concerns children express, with the accompanying explanations.
