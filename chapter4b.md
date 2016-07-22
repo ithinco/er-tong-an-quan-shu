@@ -23,8 +23,9 @@
 取笑、捉弄和其它形式的霸凌行为必须在早期加以辨认。我们必须明确告诫孩子：“不能这么做。想想她的感受。你应该怎样支援她，让其他孩子知道这样对待她是不对的呢？ 不是施暴者或受害者的儿童在改变其它儿童行为举止的过程中同样扮演着重要的角色。请教育你的孩子维护其他遭遇霸凌的儿童。
 
 Boys who are physically small or weak are more prone to victimization.  Making fun, picking on and other forms of bullying need to be identified in their earliest stages.  The message needs to be crystal clear.  “This is not okay.  Think about how he must feel.  How could you include him and let other kids know it’s not all right to treat others this way?”
-身体瘦小的男孩更容易受到伤害。孩子们应该很早就明白欺凌的各种形式，比如“取消”，“捉弄”。 “这种做法是不对的，想想被孤立的小孩是什么感受。你如何接纳他，并且让其他小孩知道上面对待其他小孩的方式是存在问题的。”这一信息必须非常明确地传达给孩子们。
+身材瘦小的男孩更容易受到伤害。孩子们应该很早就明白欺凌的各种形式，比如“取消”，“捉弄”。 “这种做法是不对的，想想被孤立的小孩是什么感受。你如何接纳他，并且让其他小孩知道上面对待其他小孩的方式是存在问题的。”这一信息必须非常明确地传达给孩子们。
 Children who are not bullies or target of bullying have a powerful role to play in shaping the behavior of other children.  The most powerful way to stop bullying is to teach every child to speak up on behalf of children being bullied.  Speaking up and saying, "Don't treat her that way, it's not nice." or "Hitting is not a good way to solve problems, let's find a teacher and talk about what happened." Can stop bullying in its tracks!
+不是施暴者或受害者的儿童在改变其它儿童行为举止的过程中同样扮演着重要的角色。请教育你的孩子维护其他遭遇霸凌的儿童。
 从未欺凌过别人也从未被欺凌过的小孩在改变其他小孩行为的过程中可以发挥巨大的作用。阻止欺凌最有效的方式就是教导每一个小孩站出来为被欺凌的小孩发声。他们可以站出来并且说道：“不要那样对她，这样一点都不友善。”或者是“打人不是解决问题的好办法，我们去找老师看看到底发生了什么。”这样完全可以遏制欺凌的蔓延。
 While the Take A Stand Program methodically introduces concepts and skills that are age appropriate and can be used daily as children learn to address interpersonal conflict more effectively, adult intervention and guidance is a necessary part stopping bullying.    
 但是“欺凌预防项目”循序渐进地向不同年龄段的儿童介绍适合他们的观点和传授他们技能，而且此项目可以每日安排学习。儿童学会如何更加有效地解决人际矛盾时，成人干预和引导也是阻止欺凌必要的一部分。
