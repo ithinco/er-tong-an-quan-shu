@@ -26,9 +26,8 @@
 
 While the Take A Stand Program methodically introduces concepts and skills that are age appropriate and can be used daily as children learn to address interpersonal conflict more effectively, adult intervention and guidance is a necessary part stopping bullying.    
 但是“欺凌预防项目”循序渐进地向不同年龄段的儿童介绍适合他们的观点和传授他们技能，而且此项目可以每日安排学习。儿童学会如何更加有效地解决人际矛盾时，成人干预和引导也是阻止欺凌必要的一部分。
-***
-RP Role-Play
-角色扮演
+
+#### 角色扮演
 
 Children learn by doing.  Role-play is what makes prevention of bullying and interpersonal conflict real for children.  There is a fundamental difference between a “concept” and a “skill.”  This is important for parents and schools to understand because stories, videotapes, coloring books, etc. only teach concepts.  
 让小孩们寓学于行是角色扮演的目的。角色扮演旨在让儿童亲身投入到预防欺凌和人际冲突的活动中。“认知”和“能力”还是存在本质区别的。重要的是，父母和学校需要认识到这一点，因为故事，视频和绘画书等其他形式都只是让孩子们有这个“认知”。
