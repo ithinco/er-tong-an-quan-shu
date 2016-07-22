@@ -8,15 +8,11 @@
 
 不过，本手册只是您的参考工具。你可以根据自身风格、适应程度以及目标儿童群体的需求自由使用。比如：你可以将活动分成更小的部分，改编角色扮演游戏，或者为了更好地适合目标儿童的成长水平对部分语言进行加工。
 
-Children are directly affected by their perception of their own well-being.  If we talk to them in a way that makes them feel fearful or insecure, we heighten their sense of vulnerability.  Understanding this is central.  Children who are frightened have fewer options and less self-confidence to handle life events effectively.  On the other hand, when we talk to children in a way that makes them feel confident, capable and informed, they can actually be more effective in protecting themselves.
-儿童对自身的认知直接影响他们本身的情绪。如果我们与他们交流的方式让他们感到恐惧或者不安全，他们会感到更加脆弱。清楚认识到这一点是我们工作的核心。那些受到惊吓的儿童更加缺乏主张，缺乏有效应对生活中突发事件的信心。但是如果我们与他们交流的方式让他们感到自信，有能力和被尊重，他们就能更好地保护自己。
+儿童对自身的认知会直接影响他们的情绪。如果我们与他们交流的方式让他们感到恐惧或者不安全，他们会感到更加脆弱。清楚认识到这一点是我们工作的核心。那些受到惊吓的儿童更加缺乏主张，缺乏有效应对生活中突发事件的信心。但是如果我们与他们交流的方式让他们感到自信，有能力和被尊重，他们就能更好地保护自己。
 
-Take A Stand is most effective when the five sessions are presented about once a week.  This allows time for the children to utilize the skills and begin to see changes.  Change over time is the goal.  Revisit the program about once a year.  This allows the children to learn new skills as they mature and keeps the concepts fresh for all age levels every year. 
-本项目包含五个部分，一周一次最为有效，因为这样的安排让儿童们有足够时间运用我们教授的技能并可以看到自身的变化。儿童们能够更好地保护自己才是我们的目标。另外，项目需要每年回顾一次，这样可以保证儿童在成长过程中不断学习新技能，并且所有年龄段儿童能熟记这些观点。
-***
+本课程包含五个部分，一周一次最为有效，因为这样的安排让儿童们有足够时间运用我们教授的技能并可以看到自身的变化。儿童们能够更好地保护自己才是我们的目标。另外，本课程需要每年回顾一次，这样可以保证儿童在成长过程中不断学习新技能，并且所有年龄段儿童都能熟记这些观点。
 
-Adult Role in Prevention of Bullying
-欺凌预防中成人的角色
+#### 预防霸凌中成人的角色
 
 As soon as children begin to interact with others, we can begin to teach them not to be bullies and not to be bullied.  We can give them words for their feelings, limit and change their behavior, and teach them better ways to express their feelings and wishes.  Children do not learn to solve these kinds of problems and get along by themselves.  We need to teach them.
 当儿童开始与他人互动时，我们可以开始告诉他们既要做到不欺凌他人，也要保护自己不被欺凌。我们可以教会他们如何使用正确的词语表达自己的情感，限制和改变他们的行为，教会他们如何更好地表达个人情感和愿望。我们不应该让儿童自己学会解决问题，独自消化情绪，相反我们应该去引导他们。
