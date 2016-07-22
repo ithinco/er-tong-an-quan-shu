@@ -4,8 +4,7 @@
  
 《挺身而出》课程旨在教授儿童及其家人具体的人际交往技能。本课程致力于以下几点：“儿童及其家人能做什么”，“儿童如何才能安全成长并且感觉受到重视”。
 
-To assist you in this process, the guides for each age group will walk you through what to say, what responses to expect, what role-plays to use and how to follow up.  Each day provides discussion outlines, role-plays and follow-up activities. It covers all the common - and some not so common - concerns children express, with the accompanying explanations.
-霸凌一般常见于儿童群体中，而通过社区在阻止霸凌上往往能取得显著成效，因此在群体场景下教授预防霸凌的知识最行之有效。考虑到这一点，本课程的所有材料在编写时都做到了便于老师或项目负责人理解和执行。为了辅助教学，课程材料会按照不同的年龄分组会在四个方面：“言语措辞”、“反馈形式” 、“角色扮演”和“跟进机制”为您提供不同的指导意见。每一天都会有不同的讨论大纲，角色扮演和跟进活动。指导手册包含了儿童所有常见和那些不常见的担忧，并且配套了相应的解释。
+霸凌一般常见于儿童群体中，而通过社区在阻止霸凌上往往能取得显著成效，因此在群体场景下教授预防霸凌的知识最行之有效。考虑到这一点，本课程的所有材料在编写时都做到了便于老师或项目负责人理解和执行。为了辅助教学，课程材料会按照不同的年龄分组在四个方面提供指导：说什么、会有什么反馈 、运用哪些角色扮演游戏以及如何跟进。每一天的课程都会有不同的讨论大纲、角色扮演游戏和跟进活动。它们包含了儿童所有常见和不常见的担忧，并且提供了相配套的解释。
 
 This guide, however, is only a tool.  You should feel free to use the materials in a way that is consistent with your own style and comfort level, and the needs of the children you are working with.  For example, you may break the activities down into smaller parts, adapt the role-plays to your community, or change some of the language to make it more appropriate to the developmental level of your children.
 但是此指导手册只是您的参考工具。您可以根据您自身风格、方便程度及目标儿童群体需求自由使用知道材料。比如：您可以将活动分成更小的部分，改编角色扮演活动，或者为了更好地适合目标儿童的成长水平对部分语言进行加工。
