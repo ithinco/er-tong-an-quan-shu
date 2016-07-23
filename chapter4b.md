@@ -35,8 +35,7 @@
 这类似于知道怎么骑自行车和真的会骑自行车之间的区别。融入讨论和其它活动后，角色扮演能够帮助孩子将这些技能烂熟于胸。角色扮演让孩子在现实生活中能够在思考了自己或他人的立场后采取行动。
 
 角色扮演的教学过程从讨论开始，然后真实模拟某一场景，将学过的概念运用于真实场景当中，然后教导儿童使用概念的技巧。在这个过程中，经过你对孩子的指导以及对孩子的帮助，孩子往往会越做越好，并能更好地维护自己和他人。
-The process of teaching role-playing is one of discussion first and then actually walking through a scenario, applying the concepts to real situations and learning how to implement the concepts with skill.  This is usually a process of successive approximations based on your coaching.  
-在展开角色扮演时，首先是围绕一个话题展开讨论，然后再设定一个场景，让孩子们在真实场景中运用掌握的观念，并且学会如何运用技能落实这些观念。其实，这就是在您的指导下，带领孩子们逐次逼近，最终实现目标的一个过程。
+
 Most children begin a role-play not being able to implement the very thing they were just talking about.  As you act out a situation, you want to coach children to communicate effectively, utilizing eye contact, clear and straightforward language and consistent body language.  Each time they role-play, children improve and feel more comfortable taking action.  This comfort level – advance preparation for life – is what will enable them to use the skills in their peer group and community.  
 
 大多数孩子刚开始在角色扮演过程中并不能很好地落实讨论中提到的某件事情。当您设定一个场景时，您希望指导孩子们进行有效地沟通，包括使用眼神交流，使用简明扼要的语言，肢体语言要配套等等。每一次角色扮演之后，孩子们都会取得进步，表演时也会更加自然。而这是为孩子们日后的生活做好准备，可以帮助他们在日后的同龄人群体中或社区中运用这些技能。
