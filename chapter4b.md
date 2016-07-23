@@ -60,7 +60,7 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 
 Ask, how can I help you with this?  Who could you go to in school if you see yourself getting into this type of situation again?
 
-询问小孩我该如何帮助你？告诉他如果他下次再遇到这种情况在学校该去找谁？
+* 询问小孩我该如何帮助你？告诉他如果他下次再遇到这种情况在学校该去找谁？
 
 Specify concretely the consequences if the aggression or bullying continue.
 
