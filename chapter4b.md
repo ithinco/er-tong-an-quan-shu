@@ -62,6 +62,4 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 
 * 明确告诉孩子，如果暴力或霸凌持续发生，具体说明将有那些结果。
 
-Your objective is to stop the behavior, understand the child's feelings, then teach and reward more appropriate behavior. 
 * 你想制止霸凌行为，要理解孩子的感受，然后教导并奖励孩子做出更恰当的举动。
-您的目的是阻止小孩的欺凌行为，理解小孩的感受，然后告诉他/她更加合适的行为，并且如果这位小孩能够做到的话，予以他/她奖励。
