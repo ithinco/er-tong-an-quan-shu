@@ -44,7 +44,7 @@ Victims vs Targets
 #### 受害者 VS 霸凌目标
 
 I do not refer to children who are the target of bullying behaviors as victims because they do not have to be.  When a child is targeted for bullying, s/he can stand up, ask for help or choose to ignore the bully.  Children who are targets of bullying can also learn new skills and move on.  Victim implies permanent damage.  While this can be true for children who are long-term targets or who experience trauma from bullying, we do not want to paint every child who experiences bullying with that brush.
-我不大愿意把那些成为霸凌目标的儿童称为受害者，因为他们可以避免成为受害者。如果一个孩子成为霸凌目标，他/她可以站出来寻求帮助，当然他/她也可以选择忍气吞声，当做什么都没发生。那些成为欺凌对象的小孩也可以学习新的技能并且继续向前进。“受害者”这一词语意味着永久的伤害。但是这对某些长期遭受欺凌或者饱受欺凌所带来的痛苦的那些小孩，永久性伤害是真实存在的。我们不愿意让每一个遭受过欺凌的小孩都带有“受害者”的标签。
+我不大愿意把那些成为霸凌目标的儿童称为受害者，因为他们可以避免成为受害者。如果一个孩子成为霸凌目标，他/她可以站出来寻求帮助，当然他/她也可以选择忍气吞声，当做什么都没发生。那些成为霸凌目标的孩子也可以学习新的技能并且继续向前进。“受害者”这一词语意味着永久的伤害。但是这对某些长期遭受欺凌或者饱受欺凌所带来的痛苦的那些小孩，永久性伤害是真实存在的。我们不愿意让每一个遭受过欺凌的小孩都带有“受害者”的标签。
 ***
  Intervention with Children who are bullying
 如何引导欺凌他人的小孩
