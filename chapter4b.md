@@ -37,8 +37,8 @@
 角色扮演的教学过程从讨论开始，然后真实模拟某一场景，将学过的概念运用于真实场景当中，然后教导儿童使用概念的技巧。在这个过程中，经过你对孩子的指导以及对孩子的帮助，孩子往往会越做越好，并能更好地维护自己和他人。
 
 大多数孩子在开始玩角色扮演游戏时，并不能很好地运用刚刚讨论的东西。当你设定一个场景时，应该指导孩子们进行有效沟通，包括眼神交流、简明扼要的语言、一致的肢体语言等。每完成一次角色扮演游戏，孩子们都会取得进步，表演时也会更加自然。而这是为孩子们日后的生活做好准备，可以让他们日后在同龄人群体或社区中运用这些技能。
-Most people are uneasy about role-play in the beginning.  But it is really what we do every day.  We walk through how to handle a business meeting or a conflict with a family member.  We think through how to handle getting the baby and the dog and the groceries into the house.  The difference in the classroom is that we act out solutions rather than just thinking about them.  
-大多数人刚开始玩角色扮演游戏都放不太开。但其实角色扮演游戏中的场景就是我们每天都会遇到的场景。我们会模拟如何与家人进行谈事或者解决冲突。我们还是思考如何让婴儿，宠物狗以及各种杂物在家庭中如何和谐融为一体。但是在教室里面我们不仅仅是停留在思考的层面上，我们会进一步去思考解决方式。
+ 
+大多数人刚开始玩角色扮演游戏都放不太开。但其实角色扮演游戏中的场景就是我们每天都会遇到的场景。我们会模拟如何与家人谈事或者解决冲突。我们还要思考如何让婴儿，宠物以及各种杂物在家庭中如何和谐地融为一体。而角色扮演游戏的区别是，我们不仅仅是停留在思考的层面上，我们会进一步找出解决方法。
 ***
 
 Victims vs Targets
