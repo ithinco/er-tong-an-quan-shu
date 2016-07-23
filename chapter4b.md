@@ -54,7 +54,7 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 
 * 无论是我们的家庭还是社会，霸凌都不可接受。
 If you are feeling frustrated or angry or aggressive, here are some things you can do. Then provide concrete examples based on the current situation.
-* 如果你感到沮丧，愤怒或者想挑衅他人，你可以通过其他方式来发泄情绪。然后您可以根据具体情况提供具体的范例。
+* 如果你感到沮丧，愤怒或者暴躁，可以通过其他方式来发泄情绪。然后您可以根据具体情况提供具体的范例。
 
 Role-play or act out the new behaviors so your teaching is experiential.  Remember that role-play is the key to changing behavior!
 进行角色扮演或者向这位小孩演示正确的行为，这样您的教学才有经验可据。记住角色扮演时改变小孩行为的关键步骤！
