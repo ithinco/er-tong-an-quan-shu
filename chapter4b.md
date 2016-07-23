@@ -57,7 +57,7 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 * 如果你感到沮丧，愤怒或者暴躁，可以通过其他方式来发泄情绪。然后你可以根据具体情况提供建议。
 
 Role-play or act out the new behaviors so your teaching is experiential.  Remember that role-play is the key to changing behavior!
-* 玩角色扮演游戏或向孩子演示正确的行为，这样你的教学才有经验可据。记住角色扮演时改变小孩行为的关键步骤！
+* 玩角色扮演游戏或向孩子演示正确的行为，这样你的教学才有经验可据。记住，角色扮演游戏是改变孩子行为的关键！
 
 Ask, how can I help you with this?  Who could you go to in school if you see yourself getting into this type of situation again?
 
