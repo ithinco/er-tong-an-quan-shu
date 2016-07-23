@@ -74,10 +74,3 @@ Specify concretely the consequences if the aggression or bullying continue.
 
 Your objective is to stop the behavior, understand the child's feelings, then teach and reward more appropriate behavior.
 您的目的是阻止小孩的欺凌行为，理解小孩的感受，然后告诉他/她更加合适的行为，并且如果这位小孩能够做到的话，予以他/她奖励。
-Reproduction
-材料使用说明
-
-Permission is granted to reproduce these materials for use with children.  If you want to use them for any other purpose, or if you are interested in translating them for use in another language, please contact the author at kraizer@safechild.org 
-我允许社会人士复印这些材料用于儿童欺凌教育。如果您有使用需求或者您想翻译成其他语言，请联系作者kraizer@safechild.org 。
-
-© 2016 Sherryll Kraizer, Ph.D.
