@@ -38,7 +38,7 @@
 
 Most children begin a role-play not being able to implement the very thing they were just talking about.  As you act out a situation, you want to coach children to communicate effectively, utilizing eye contact, clear and straightforward language and consistent body language.  Each time they role-play, children improve and feel more comfortable taking action.  This comfort level – advance preparation for life – is what will enable them to use the skills in their peer group and community.  
 
-大多数孩子刚开始在角色扮演过程中并不能很好地落实讨论中提到的某件事情。当您设定一个场景时，您希望指导孩子们进行有效地沟通，包括使用眼神交流，使用简明扼要的语言，肢体语言要配套等等。每一次角色扮演之后，孩子们都会取得进步，表演时也会更加自然。而这是为孩子们日后的生活做好准备，可以帮助他们在日后的同龄人群体中或社区中运用这些技能。
+大多数孩子在开始玩角色扮演游戏时，并不能很好地运用刚刚讨论的东西。当您设定一个场景时，您希望指导孩子们进行有效地沟通，包括使用眼神交流，使用简明扼要的语言，肢体语言要配套等等。每一次角色扮演之后，孩子们都会取得进步，表演时也会更加自然。而这是为孩子们日后的生活做好准备，可以帮助他们在日后的同龄人群体中或社区中运用这些技能。
 Most people are uneasy about role-play in the beginning.  But it is really what we do every day.  We walk through how to handle a business meeting or a conflict with a family member.  We think through how to handle getting the baby and the dog and the groceries into the house.  The difference in the classroom is that we act out solutions rather than just thinking about them.  
 大多数人最刚开始参与角色扮演都放不太开。但其实角色扮演的场景就是我们每天都会遇到的场景。我们会模拟如何与家人进行谈事或者解决冲突。我们还是思考如何让婴儿，宠物狗以及各种杂物在家庭中如何和谐融为一体。但是在教室里面我们不仅仅是停留在思考的层面上，我们会进一步去思考解决方式。
 ***
