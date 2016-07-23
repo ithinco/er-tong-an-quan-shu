@@ -60,9 +60,7 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 
 * 问一下，我该怎么帮你做这个呀？如果你发现自己在学校再次卷入这类场景，你能找谁帮忙呢？
 
-Specify concretely the consequences if the aggression or bullying continue.
-
-明确告诉小孩如果他/她继续欺凌别人，会导致怎样的后果。
+* 明确告诉孩子，如果暴力或霸凌持续发生，具体说明将有那些结果。
 
 Your objective is to stop the behavior, understand the child's feelings, then teach and reward more appropriate behavior.
 您的目的是阻止小孩的欺凌行为，理解小孩的感受，然后告诉他/她更加合适的行为，并且如果这位小孩能够做到的话，予以他/她奖励。
