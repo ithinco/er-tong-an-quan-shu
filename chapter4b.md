@@ -38,7 +38,7 @@
 
 大多数孩子在开始玩角色扮演游戏时，并不能很好地运用刚刚讨论的东西。当你设定一个场景时，应该指导孩子们进行有效沟通，包括眼神交流、简明扼要的语言、一致的肢体语言等。每完成一次角色扮演游戏，孩子们都会取得进步，表演时也会更加自然。而这是为孩子们日后的生活做好准备，可以让他们日后在同龄人群体或社区中运用这些技能。
 Most people are uneasy about role-play in the beginning.  But it is really what we do every day.  We walk through how to handle a business meeting or a conflict with a family member.  We think through how to handle getting the baby and the dog and the groceries into the house.  The difference in the classroom is that we act out solutions rather than just thinking about them.  
-大多数人最刚开始参与角色扮演都放不太开。但其实角色扮演的场景就是我们每天都会遇到的场景。我们会模拟如何与家人进行谈事或者解决冲突。我们还是思考如何让婴儿，宠物狗以及各种杂物在家庭中如何和谐融为一体。但是在教室里面我们不仅仅是停留在思考的层面上，我们会进一步去思考解决方式。
+大多数人刚开始玩角色扮演游戏都放不太开。但其实角色扮演游戏中的场景就是我们每天都会遇到的场景。我们会模拟如何与家人进行谈事或者解决冲突。我们还是思考如何让婴儿，宠物狗以及各种杂物在家庭中如何和谐融为一体。但是在教室里面我们不仅仅是停留在思考的层面上，我们会进一步去思考解决方式。
 ***
 
 Victims vs Targets
