@@ -32,16 +32,9 @@
 
 通过角色扮演引入概念，然后将概念转化为技能。通过模拟不同场景让孩子练习应对霸凌的不同做法，可以将上文提出的观点从概念——或理念——转化为牢记于“身心”之中、永远不会忘记的技能。
 
-
 这类似于知道怎么骑自行车和真的会骑自行车之间的区别。融入讨论和其它活动后，角色扮演能够帮助孩子将这些技能烂熟于胸。角色扮演让孩子在现实生活中能够在思考了自己或他人的立场后采取行动。
 
-
 角色扮演的教学过程从讨论开始，然后真实模拟某一场景，将学过的概念运用于真实场景当中，然后教导儿童使用概念的技巧。在这个过程中，经过你对孩子的指导以及对孩子的帮助，孩子往往会越做越好，并能更好地维护自己和他人。
-
-Role-playing is what takes concepts and turns them into skills.  Actually walking through situations and having the children practice different responses is what takes the information from the level of a concept – or an idea – to a skill that is learned in the “muscles” and will never be forgotten.  
-通过角色扮演，认知转化为技能。实际上，带着孩子们体验不同的场景，让孩子们练习不同的回应，目的在于把“认知”或“想法”层面的信息转换成一种技能。而这种技能是孩子们调用全身肌肉学习获得的技能，掌握之后是永远不会忘记的。
-It is like the difference between understanding how to ride a bicycle and actually being able to ride a bicycle.  Role-play, merged with discussion and activities, enables children to learn the skills in their muscles.  This is what allows them to actually intervene on behalf of themselves or others in real life situations.  
-这其实就和知道如何骑自行车和会骑自行车存在区别一样的道理。角色扮演中有各种讨论和活动。这一环节下来，孩子们可以通过肌肉记忆掌握这些技能。当他们在现实生活中碰到这类场景，他们会自然而然出面进行干预和阻止。
 The process of teaching role-playing is one of discussion first and then actually walking through a scenario, applying the concepts to real situations and learning how to implement the concepts with skill.  This is usually a process of successive approximations based on your coaching.  
 在展开角色扮演时，首先是围绕一个话题展开讨论，然后再设定一个场景，让孩子们在真实场景中运用掌握的观念，并且学会如何运用技能落实这些观念。其实，这就是在您的指导下，带领孩子们逐次逼近，最终实现目标的一个过程。
 Most children begin a role-play not being able to implement the very thing they were just talking about.  As you act out a situation, you want to coach children to communicate effectively, utilizing eye contact, clear and straightforward language and consistent body language.  Each time they role-play, children improve and feel more comfortable taking action.  This comfort level – advance preparation for life – is what will enable them to use the skills in their peer group and community.  
