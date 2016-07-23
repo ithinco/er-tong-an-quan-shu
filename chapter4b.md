@@ -28,8 +28,17 @@
 
 #### 角色扮演
 
-Children learn by doing.  Role-play is what makes prevention of bullying and interpersonal conflict real for children.  There is a fundamental difference between a “concept” and a “skill.”  This is important for parents and schools to understand because stories, videotapes, coloring books, etc. only teach concepts.  
-让小孩们寓学于行是角色扮演的目的。角色扮演旨在让儿童亲身投入到预防欺凌和人际冲突的活动中。“认知”和“能力”还是存在本质区别的。重要的是，父母和学校需要认识到这一点，因为故事，视频和绘画书等其他形式都只是让孩子们有这个“认知”。
+This is important for parents and schools to understand because stories, videotapes, coloring books, etc. only teach concepts.  
+
+孩子从实践中学习。角色扮演能让孩子亲身体验预防霸凌和人际矛盾。“概念”和“技能”存在着本质区别。父母和学校认识到这一点很重要，因为故事，视频和绘画书等其他形式都只是教授孩子“概念”。
+
+通过角色扮演引入概念，然后将概念转化为技能。通过模拟不同场景让孩子练习应对霸凌的不同做法，可以将上文提出的观点从概念——或理念——转化为牢记于“身心”之中、永远不会忘记的技能。
+
+
+这类似于知道怎么骑自行车和真的会骑自行车之间的区别。融入讨论和其它活动后，角色扮演能够帮助孩子将这些技能烂熟于胸。角色扮演让孩子在现实生活中能够在思考了自己或他人的立场后采取行动。
+
+
+角色扮演的教学过程从讨论开始，然后真实模拟某一场景，将学过的概念运用于真实场景当中，然后教导儿童使用概念的技巧。在这个过程中，经过你对孩子的指导以及对孩子的帮助，孩子往往会越做越好，并能更好地维护自己和他人。
 
 Role-playing is what takes concepts and turns them into skills.  Actually walking through situations and having the children practice different responses is what takes the information from the level of a concept – or an idea – to a skill that is learned in the “muscles” and will never be forgotten.  
 通过角色扮演，认知转化为技能。实际上，带着孩子们体验不同的场景，让孩子们练习不同的回应，目的在于把“认知”或“想法”层面的信息转换成一种技能。而这种技能是孩子们调用全身肌肉学习获得的技能，掌握之后是永远不会忘记的。
