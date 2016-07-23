@@ -51,8 +51,8 @@ Children who engage in bullying behaviors need to be dealt with consistently and
 我们需要有效地对欺凌他人的小孩进行引导，直到他们停止这种行为。欺凌不应该被忽视或者原谅。
 DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  Your discussion with a bullying child should focus on several key points:
 不要任意指责。不要追究事情发生的动机。您与欺凌他人的孩子对话时，应该着重在以下几点：
-Bullying is not acceptable in our school, family or in society.
-欺凌在学校，家庭和社会都是不允许的。
+
+* 无论是我们的家庭还是社会，霸凌都不可接受。
 If you are feeling frustrated or angry or aggressive, here are some things you can do. Then provide concrete examples based on the current situation.
 如果你感到很沮丧，愤怒或者想挑衅他人，你可以通过其他方式来发泄情绪。然后您可以根据具体情况提供具体的范例。
 
