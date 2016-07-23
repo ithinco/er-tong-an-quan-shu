@@ -58,9 +58,7 @@ DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  
 
 * 玩角色扮演游戏或向孩子演示正确的行为，这样才能言传身教。记住，角色扮演游戏是改变孩子行为的关键！
 
-Ask, how can I help you with this?  Who could you go to in school if you see yourself getting into this type of situation again?
-
-* 询问小孩我该如何帮助你？告诉他如果他下次再遇到这种情况在学校该去找谁？
+* 问一下，我该怎么帮你做这个呀？如果你发现自己在学校再次卷入这类场景，你能找谁帮忙呢？
 
 Specify concretely the consequences if the aggression or bullying continue.
 
