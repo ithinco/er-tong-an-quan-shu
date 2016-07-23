@@ -28,8 +28,6 @@
 
 #### 角色扮演
 
-This is important for parents and schools to understand because stories, videotapes, coloring books, etc. only teach concepts.  
-
 孩子从实践中学习。角色扮演能让孩子亲身体验预防霸凌和人际矛盾。“概念”和“技能”存在着本质区别。父母和学校认识到这一点很重要，因为故事，视频和绘画书等其他形式都只是教授孩子“概念”。
 
 通过角色扮演引入概念，然后将概念转化为技能。通过模拟不同场景让孩子练习应对霸凌的不同做法，可以将上文提出的观点从概念——或理念——转化为牢记于“身心”之中、永远不会忘记的技能。
