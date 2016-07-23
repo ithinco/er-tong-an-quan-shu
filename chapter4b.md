@@ -49,8 +49,8 @@
 
 Children who engage in bullying behaviors need to be dealt with consistently and effectively.  Bullying should not be overlooked or excused.  We know bullying behavior only escalates as children get older and the ramifications for bullies and the group as a whole are significant.  
 我们需要有效地对欺凌他人的小孩进行引导，直到他们停止这种行为。欺凌不应该被忽视或者原谅。
-DO NOT BLAME.  Do not get into a discussion about the "whys" of what happened.  Your discussion with a bullying child should focus on several key points:
-不要任意指责。不要追究事情发生的动机。您与欺凌他人的孩子对话时，应该着重在以下几点：
+
+在交流时，不要责备孩子。不要讨论“为什么”会发生这些事。你和孩子的谈话应专注于以下几点关键内容：
 
 * 无论是我们的家庭还是社会，霸凌都不可接受。
 
