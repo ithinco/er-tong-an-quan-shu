@@ -46,7 +46,7 @@
 
 #### 如果你的孩子是施暴者
 
-Children who engage in bullying behaviors need to be dealt with consistently and effectively.  Bullying should not be overlooked or excused.  We know bullying behavior only escalates as children get older and the ramifications for bullies and the group as a whole are significant.  
+We know bullying behavior only escalates as children get older and the ramifications for bullies and the group as a whole are significant.  
 我们需要有效地对欺凌他人的孩子进行引导，直到他们停止这种行为。欺凌不应该被忽视或者寻找借口忽视。
 
 在交流时，不要责备孩子。不要讨论“为什么”会发生这些事。你和孩子的谈话应专注于以下几点关键内容：
