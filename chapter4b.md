@@ -44,8 +44,7 @@
 
 我不大愿意把那些成为霸凌目标的儿童称为受害者，因为他们可以避免成为受害者。如果一个孩子成为霸凌目标，他/她可以站出来寻求帮助，当然他/她也可以选择忍气吞声，当做什么都没发生。那些成为霸凌目标的孩子也可以学习新的技能并且继续生活。“受害者”这个词意味着永久伤害。但这是对某些长期遭受欺凌或者饱受欺凌所带来的痛苦的孩子而言。我不愿意给每一个遭受过欺凌的孩子都打上“受害者”的标签。
 
- Intervention with Children who are bullying
-#### 如何引导欺凌他人的小孩
+#### 如果你的孩子是施暴者
 
 Children who engage in bullying behaviors need to be dealt with consistently and effectively.  Bullying should not be overlooked or excused.  We know bullying behavior only escalates as children get older and the ramifications for bullies and the group as a whole are significant.  
 我们需要有效地对欺凌他人的小孩进行引导，直到他们停止这种行为。欺凌不应该被忽视或者原谅。
