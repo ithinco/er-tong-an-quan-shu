@@ -8,9 +8,7 @@
 
 认识自己的霸凌行为
 
-To learn how to apologize and “clean up” after their behavior
-
-学会道歉并自我反思
+学会如何就自己的霸凌行为道歉并进行弥补
 
 To acknowledge that adults have problems.
 
