@@ -34,17 +34,13 @@
 
 #### 身体欺凌
 
-How many of you think the grown-ups you live with have problems? (Most kids know adults have problems and have no reluctance about saying so.)
+有多少人认为成年人也有自己的问题要面对？
 
-有多少人认为自己身边的大人存在问题？（大多数小孩知道他们的父母存在问题，也不排斥说出这一点。）
+大多数孩子都知道自己的父母有问题要面对，也不排斥说出这一点。
 
-Do adults ever treat you differently because of their problems?
+大人们是否会因为他们个人的问题，而对你的态度发生变化？
 
-大人是否因为他们个人的问题对你的态度发生变化？
-
-What are some of the ways you know the grown-ups around you are under stress? No names or specifics.
-
-你通过哪些途径知道周围的大人压力很大？
+你通过哪些途径知道大人压力很大？不要说出名字。
 
 How many of you have ever been punished?
 
