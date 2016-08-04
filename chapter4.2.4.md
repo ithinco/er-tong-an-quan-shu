@@ -10,18 +10,11 @@
 
 学会如何就自己的霸凌行为道歉并进行弥补
 
-To acknowledge that adults have problems.
+了解父母也有问题要面对
 
-认识父母自身也存在问题
+了解父母有时候会将问题发泄在孩子身上
 
-To acknowledge that they sometimes take their problems out on their children
+介绍伤害过度的概念
 
-认识父母有时候会将问题发泄在孩子身上
+介绍言语伤人的概念
 
-To introduce the concept of hitting which is excessive
-
-介绍过度身体伤害行为
-
-To introduce the concept of words that hurt
-
-介绍伤人词语
