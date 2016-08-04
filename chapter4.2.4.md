@@ -42,8 +42,6 @@
 
 你通过哪些途径知道大人压力很大？不要说出名字。
 
-How many of you have ever been punished?
-
 你们有多少人被父母惩罚过？
 
 Did you ever feel that the punishment was unfair? (Most kids have this experience.)
