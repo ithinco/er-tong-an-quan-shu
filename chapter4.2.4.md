@@ -72,9 +72,6 @@
 
 **角色扮演**：我需要一些同学来帮我。老师会扮演以下游戏中的成年人。
 
-
-
-
  If I say to you, "You're so stupid, I can’t believe you belong in my family." Does that hurt?
 
 如果我对你说：“你太笨了，我难以相信我家竟然会有你这样一个孩子。”
