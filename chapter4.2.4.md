@@ -70,13 +70,8 @@
 
 但是仅仅因为他们自己心情不好时说出的一些不好的话，并不意味着这是他们的真实想法。
 
-RP I need someone to help me.
+**角色扮演**：我需要一些同学来帮我。老师会扮演以下游戏中的成年人。
 
-角色扮演：我需要一些人帮助我。老师会扮演例子中的成年人。
-
-
-
- (Teacher will play role of adult in all these examples.)
 
 
 
