@@ -18,9 +18,7 @@
 
 你们有谁认识到自己曾经欺负过别人，对待别人不友善或者让别人感觉糟糕？
 
-How did you feel when you realized you were doing that?
-
-你如何认识到自己有以上行为？
+当你认识到自己有这些行为时，你是什么感受？
 
 Did you go back and apologize or do anything to make up for your behavior?
 
