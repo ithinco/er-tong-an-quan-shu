@@ -24,15 +24,9 @@
 
 做出以上行为后，你是什么感受？
 
-How do you think the other person felt?
+你认为对方是什么感受？
 
-你认为别人的感觉如何？
-
-How many of you have been advocates for yourselves when someone was bullying you?
-
-你们有多少人在被别人欺负时会为自己理论？
-
-How did that feel?
+你们有多少人在被别人欺负时会成为倡导者，为自己理论？
 
 感觉如何？
 
