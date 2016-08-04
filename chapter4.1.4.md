@@ -70,7 +70,7 @@
 
  "You're an idiot." Did you remember to say “That’s not true about me?” How did it feel?
 
-当你说出“你是个白痴”时，你对自己说了“我不是这样想的”吗？感觉如何？
+> 当你说出“你是个白痴”时，你对自己说了“我不是这样想的”吗？感觉如何？
 
 
 
