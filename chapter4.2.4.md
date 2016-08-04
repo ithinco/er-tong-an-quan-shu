@@ -48,14 +48,9 @@
 
 假如有人的惩罚伤害了你的身体，你会怎么做？
 
+假如有人狠狠地在打了你作为惩罚，甚至第二天还有淤青和淤血，你会怎么做？
 
-What if that punishment is something like hitting you so hard that it leaves bruises or marks that are there the next day?
-
-如果对你的惩罚，比如狠狠地打了你，导致你第二天身上还有痕迹或者淤青？
-
-What if they say they only did it because you were bad?
-
-如果他们这样做仅仅是因为觉得你表现不好？
+假如他们这样做仅仅是因为觉得你表现不好，你会怎么做？
 
 Would you tell someone?
 
