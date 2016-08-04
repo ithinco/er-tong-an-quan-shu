@@ -52,11 +52,7 @@
 
 假如他们这样做仅仅是因为觉得你表现不好，你会怎么做？
 
-Would you tell someone?
-
-你会把这件事告诉别人吗？
-
-Would you be afraid to tell?
+你会告诉别人吗？
 
 你会害怕告诉别人吗？
 
