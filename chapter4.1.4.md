@@ -22,9 +22,7 @@
 
 你是否会因为以上行为向别人道歉或者进行弥补？
 
-How did you feel after that?
-
-做出以上行为后，自我感觉如何？
+做出以上行为后，你是什么感受？
 
 How do you think the other person felt?
 
