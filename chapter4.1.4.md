@@ -28,15 +28,11 @@
 
 你们有多少人在被别人欺负时会成为倡导者，为自己理论？
 
-感觉如何？
+这时你是什么感受？
 
-Did it work?
+这么做有效果吗？
 
-理论有效吗？
-
-Did the bullying stop?
-
-理论之后，别人停止欺凌你了吗？
+欺凌行为停止了吗？
 
 How many of you have been advocates for someone else?
 
