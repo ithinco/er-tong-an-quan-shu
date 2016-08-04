@@ -74,8 +74,46 @@
 
 **角色扮演**：如果一个大人说：“你是个坏女孩。“你会感觉受伤吗？
 
-
-
 Discussion: If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that. Grown-ups sometimes need help with handling their problems just as kids do. You might need to be the person to ask for that help. Who would you tell?
 
 讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。成年人遇到问题时，和小孩一样都需要外界帮助解决自己的问题。你可能需要向某人寻求帮助，你该找谁呢？
+
+身体欺凌
+
+What if someone injures your body, like hitting you too hard, because they say you were bad?
+
+如果有人认为你表现不好，而伤害你的身体， 比如重重地打你？
+
+ Is that all right?
+
+这种行为对吗？
+
+ Would you tell someone?
+
+你会告诉别人吗？
+
+What if someone spanks you so hard it leaves bruises and marks that are there the next day.
+
+如果有人狠狠地在你屁股上打了一巴掌，甚至第二天还有掌印和淤血。
+
+Do you think that would be too much?
+
+你认为这过分吗？
+
+It's not all right for kids to be punished in a way that leaves bruises or marks that are there the next day.
+
+这种做法是非常不正确的。
+
+If that happened to you, who would you tell?
+
+如果有人这样对你做，你会告诉谁？
+
+Next time we're going to talk about how to tell so you really get help when you need it.
+
+下一次我们将讨论有人对自己这样做事，该如何告诉他人，获得帮助？
+
+#### 活动
+
+Make a list (and draw pictures) of all the people you could talk to is you had a difficult problem.
+
+列出一张写有当你遇到问题时会向他/她求助的名字清单。
