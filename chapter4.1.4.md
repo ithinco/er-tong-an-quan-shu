@@ -70,15 +70,7 @@
 
 > 当大人说出“你是个白痴”时，你要记得说“你说的并不是事实”。这时你是什么感受？
 
-
-
-RP What if an adult says to you, “You can't get anything right." Does that hurt?
-
-
-
- How do you handle it?
-
-角色扮演：如果一个大人对你说:“你什么事情都做不成。”这句话让你感觉受伤吗？你又该如何处理呢？
+**角色扮演**：如果一个大人对你说:“你什么事情都做不成。”这句话让你感觉受伤吗？你又会如何处理呢？
 
 
 
