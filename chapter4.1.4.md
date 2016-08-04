@@ -42,13 +42,9 @@
 
 欺凌行为停止了吗？
 
-Adult Bullies
+#### 成年霸凌者
 
-#### 成年欺凌者
-
-Are adults ever bullies?
-
-成年人是否曾经是欺凌者？
+成年人是否会霸凌？
 
  Discussion without names.
 
