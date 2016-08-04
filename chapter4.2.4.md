@@ -44,9 +44,7 @@
 
 你们有多少人被父母惩罚过？
 
-Did you ever feel that the punishment was unfair? (Most kids have this experience.)
-
-你是否觉得很不公平？（大多数小孩都有这种经历）
+你是否觉得惩罚很不公平？（大多数孩子都有这种经历）
 
 What if someone punishes you in a way that injures your body?
 
