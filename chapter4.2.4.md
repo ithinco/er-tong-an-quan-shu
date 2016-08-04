@@ -20,26 +20,16 @@
 
 #### 老师主导的讨论和角色扮演
 
-How many of you recognized times that you were being a bully, or being unkind to someone or making someone else feel bad?
+你们有谁认识到自己曾经欺负过别人，对待别人不友善或者让别人感觉糟糕？
 
-你们有谁认识到自己曾经欺负过别人？或者对待别人不友善或者让别人感觉糟糕？
+当你认识到自己有这些行为时，你是什么感受？
 
-How did you feel when you realized you were doing that?
+你是否会因为以上行为向别人道歉或者进行弥补？
 
-你如何认识到自己有以上行为？
+做出以上行为后，你是什么感受？
 
-Did you go back and apologize or do anything to make up for your behavior?
+你认为对方是什么感受？
 
-你是否会因为以上行为向别人道歉或者做出任何弥补行为？
+**角色扮演**：从小组中抽取几个欺凌他人然后道歉的例子，进行角色扮演游戏。
 
-How did you feel after that?
 
-做出以上行为后，自我感觉如何？
-
-How do you think the other person felt?
-
-你认为别人的感觉如何？
-
-RP Elicit from group several examples to role-play when they were a bully and then apologized.
-
-从小组中抽取几个欺凌他人然后道歉的例子，进行角色扮演
