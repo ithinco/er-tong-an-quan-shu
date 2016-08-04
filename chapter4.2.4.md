@@ -132,8 +132,7 @@ Discussion: If someone hurts you with his or her words, and it happens to you a 
 
 讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。如果你向他人求助，日子不舒服的那位大人也可以得到帮助，从而解决他自身的问题。如果有需要寻求帮助，你会告诉谁？列出一张名字清单。
 
-Activity
-
+#### 活动
 
 
 1. Make a list of all the grown-ups that could help you with a problem. Write down their numbers and begin to develop your own phone book.
