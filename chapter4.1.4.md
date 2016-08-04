@@ -42,3 +42,24 @@
 
 欺凌行为停止了吗？
 
+Adult Bullies
+
+#### 成年欺凌者
+
+Are adults ever bullies?
+
+成年人是否曾经是欺凌者？
+
+ Discussion without names.
+
+展开不记名讨论
+
+How many of you think grown-ups have any problems?
+
+有多少人认为成年人自身存在问题？
+
+
+
+ Most kids know their parents have problems and have no reluctance about saying so.
+
+大多数小孩知道他们的父母存在问题，也不排斥说出这一点。
