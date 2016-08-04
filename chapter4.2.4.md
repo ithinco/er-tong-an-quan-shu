@@ -72,19 +72,13 @@
 
 **角色扮演**：我需要一些同学来帮我。老师会扮演以下游戏中的成年人。
 
-如果我对你说：“你太笨了，我难以相信我家竟然会有你这样一个孩子。”
+> 如果我对你说：“你太笨了，我难以相信我家竟然会有你这样一个孩子。”
 
-你会不会感觉受伤？
+> 你会不会感觉受伤？
 
-难道我这么说，就真是那个意思吗？当然不是！
+> 难道我这么说，就真是那个意思吗？当然不是！
 
-
- How does having someone say something like this feel in your body?
-
-如果有人对你说这样的话，你身体感觉如何?
-
- What other feelings do you have?
-
+> 如果有人对你说这样的话，你在身体上会有什么感觉吗?
 你还有其他感觉吗？
 
  What response do you feel like making?
