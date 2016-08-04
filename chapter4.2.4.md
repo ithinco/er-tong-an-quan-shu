@@ -46,9 +46,8 @@
 
 你是否觉得惩罚很不公平？（大多数孩子都有这种经历）
 
-What if someone punishes you in a way that injures your body?
+假如有人的惩罚伤害了你的身体，你会怎么做？
 
-如果有人惩罚你，导致你身体受伤？
 
 What if that punishment is something like hitting you so hard that it leaves bruises or marks that are there the next day?
 
