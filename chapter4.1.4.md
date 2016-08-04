@@ -68,7 +68,7 @@
 
  This time, I want you to practice saying "That's not true about me" inside your head when I say something that isn’t very nice.
 
-当你说些不友好的话时，我希望你可以学会说：“我其实不是这样想的，这不是我的真实想法。”
+> 当你说些不友好的话时，我希望你可以学会说：“我其实不是这样想的，这不是我的真实想法。”
 
  "You're an idiot." Did you remember to say “That’s not true about me?” How did it feel?
 
