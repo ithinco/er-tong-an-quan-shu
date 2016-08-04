@@ -34,18 +34,11 @@
 
 欺凌行为停止了吗？
 
-How many of you have been advocates for someone else?
+你们有多少人在看到别人被欺负时，作为倡导者站出来过？
 
-你们有多少人站出来为被欺凌的人理论过？
+这时你是什么感受？
 
-How did that feel?
+这么做有效果吗？
 
-感觉如何？
+欺凌行为停止了吗？
 
-Did it work?
-
-有效吗？
-
-Did the bullying stop?
-
-理论之后，别人停止欺凌你了吗？
