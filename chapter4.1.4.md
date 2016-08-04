@@ -78,9 +78,7 @@
 
 #### 身体霸凌
 
-What if someone injures your body, like hitting you too hard, because they say you were bad?
-
-如果有人认为你表现不好，而伤害你的身体， 比如重重地打你？
+假如有人因为觉得你坏而伤害你的身体（比如重重地打你），你会怎么做？
 
  Is that all right?
 
