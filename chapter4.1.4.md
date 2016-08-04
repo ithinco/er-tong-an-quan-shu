@@ -62,13 +62,9 @@
 
 **角色扮演**：我需要一些同学来帮我。老师会扮演以下游戏中的成年人。
 
- If I say to you, "You're an idiot." Does that hurt?
+> 如果我对你说：“你是个白痴。”你会不会感觉很受伤？
 
-如果我对你说：“你个白痴。”你会不会感觉很受伤？
-
- Is it true just because I say it? Of course not!
-
-我难道真认为你是个白痴吗？当然不是！
+> 我难道真认为你是个白痴吗？当然不是！
 
  This time, I want you to practice saying "That's not true about me" inside your head when I say something that isn’t very nice.
 
