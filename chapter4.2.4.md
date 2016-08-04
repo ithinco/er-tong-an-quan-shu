@@ -6,9 +6,7 @@
 
 #### 目标
 
-To recognize times when children have been bullies themselves
-
-认识到孩子在什么时候欺凌过别的小孩？
+认识自己的霸凌行为
 
 To learn how to apologize and “clean up” after their behavior
 
