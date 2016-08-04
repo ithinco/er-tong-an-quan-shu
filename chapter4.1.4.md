@@ -46,15 +46,11 @@
 
 成年人是否会霸凌？
 
- Discussion without names.
-
-展开不记名讨论
+> 进行讨论，不要说出名字
 
 How many of you think grown-ups have any problems?
 
 有多少人认为成年人自身存在问题？
-
-
 
  Most kids know their parents have problems and have no reluctance about saying so.
 
