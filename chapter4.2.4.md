@@ -32,7 +32,7 @@
 
 **角色扮演**：从小组中抽取几个欺凌他人然后道歉的例子，进行角色扮演游戏。
 
-#### 身体欺凌
+#### 身体霸凌
 
 有多少人认为成年人也有自己的问题要面对？
 
@@ -72,9 +72,7 @@ Is it important that you do it? Absolutely!
 
 你这样做重不重要？绝对重要！
 
-Emotional Bullying
-
-情感欺凌
+#### 情感霸凌
 
 Do grown-ups ever hurt you with their words?
 
