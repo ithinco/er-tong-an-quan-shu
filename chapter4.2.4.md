@@ -92,9 +92,7 @@
 
 **角色扮演**：如果一个大人对你说：“你是我见过的最糟糕的小孩”。这句话让你感觉受伤吗？你又会如何处理呢？是置之不理还是相信他说的话？
 
-Discussion: If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that. One important benefit of you asking for help is that the adult who is having a hard time can also get help with handling their problems. If you need to ask for help, who would you talk to? Make a list.
-
-讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。如果你向他人求助，日子不舒服的那位大人也可以得到帮助，从而解决他自身的问题。如果有需要寻求帮助，你会告诉谁？列出一张名字清单。
+讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉别人。成年人在遇到一些问题时，也会像孩子一样需要外界帮助。如果你需要向某人寻求帮助，你会找谁呢？列出一张名字清单。
 
 #### 活动
 
