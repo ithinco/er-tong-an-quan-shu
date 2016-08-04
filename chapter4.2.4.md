@@ -56,9 +56,7 @@
 
 你会害怕告诉别人吗？
 
-You need to know that no child ever deserves to be punished in a way that leaves marks or bruises that are there the next day. An adult who does that is having problems that are being taken out on the child. When you ask for help for yourself, often the grownup can also get help with their problems.
-
-你需要明白，第二天身上还有淤青或者痕迹的惩罚绝对不能发生。如果大人这样做，说明他们自己存在问题，并把问题发泄在孩子身上。如果你自己寻求帮助，大人们经常也会得到帮助，解决他们自己的问题。
+你需要明白，第二天身上还有淤青或者痕迹的惩罚绝对不能发生。如果大人这样做，说明他们自己存在问题，并把问题发泄在孩子身上。在你为自己寻求帮助时，大人们通常也会得到帮助，来解决他们自己的问题。
 
 Telling someone else about what is happening to you is important so you don’t continue to get hurt and the adult can get help for their problem.
 
