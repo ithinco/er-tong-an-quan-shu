@@ -96,6 +96,4 @@
 
 #### 活动
 
-Make a list (and draw pictures) of all the people you could talk to is you had a difficult problem.
-
 列出一张写有当你遇到问题时会向他/她求助的名字清单。
