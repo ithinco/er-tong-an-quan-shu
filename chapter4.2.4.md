@@ -90,19 +90,7 @@
 
 **角色扮演**：如果一个大人对你说:“你什么事情都做不成”。这句话让你感觉受伤吗？你又会如何处理呢？
 
-
-
-
-
-RP What if an adult says, "You're the worst kid I’ve ever had to be around." Does that hurt?
-
-
-
-
-
- How do you handle it, so you don’t take it inside you or believe it?
-
-**角色扮演**：如果一个大人对你说:“你是我见过最糟糕的小孩。”这句话让你感觉受伤吗？你又该如何处理呢？是置之不理还是相信他说的话？
+**角色扮演**：如果一个大人对你说：“你是我见过的最糟糕的小孩”。这句话让你感觉受伤吗？你又会如何处理呢？是置之不理还是相信他说的话？
 
 
 
