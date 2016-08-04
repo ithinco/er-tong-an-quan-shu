@@ -48,10 +48,64 @@
 
 > 进行讨论，不要说出名字
 
-How many of you think grown-ups have any problems?
+有多少人认为成年人也有自己的问题要面对？
 
-有多少人认为成年人自身存在问题？
+大多数孩子都知道自己的父母有问题要面对，也不排斥说出这一点。
 
- Most kids know their parents have problems and have no reluctance about saying so.
+#### 情感霸凌
 
-大多数小孩知道他们的父母存在问题，也不排斥说出这一点。
+Do grown-ups ever treat you differently because of their problems?
+
+大人是否因为他们个人的问题对你的态度发生变化？
+
+
+
+Sure they do. Everyone gets cranky sometimes; everyone gets frustrated sometimes.
+
+他们肯定这样做过。每个人都会有时候心情沮丧或者脾气暴躁。
+
+But just because an adult gets upset and says things that aren't very nice, that doesn't make what they say true.
+
+但是仅仅因为他们自己心情不好，说出的一些不是很友好的话并不代表他们的真实想法。
+
+RP I need someone to help me. Teacher will play role of adult is all these examples.
+
+角色扮演：我需要一些人帮助我。老师会扮演例子中的成年人。
+
+ If I say to you, "You're an idiot." Does that hurt?
+
+如果我对你说：“你个白痴。”你会不会感觉很受伤？
+
+ Is it true just because I say it? Of course not!
+
+我难道真认为你是个白痴吗？当然不是！
+
+ This time, I want you to practice saying "That's not true about me" inside your head when I say something that isn’t very nice.
+
+当你说些不友好的话时，我希望你可以学会说：“我其实不是这样想的，这不是我的真实想法。”
+
+ "You're an idiot." Did you remember to say “That’s not true about me?” How did it feel?
+
+当你说出“你是个白痴”时，你对自己说了“我不是这样想的”吗？感觉如何？
+
+
+
+RP What if an adult says to you, “You can't get anything right." Does that hurt?
+
+
+
+ How do you handle it?
+
+角色扮演：如果一个大人对你说:“你什么事情都做不成。”这句话让你感觉受伤吗？你又该如何处理呢？
+
+
+
+RP What if an adult says, "You're a very bad girl." Does that hurt?
+
+如果一个大人说：“你是个坏女孩。“你感觉受伤吗？
+
+
+
+Discussion: If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that. Grown-ups sometimes need help with handling their problems just as kids do. You might need to be the person to ask for that help. Who would you tell?
+
+讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。成年人遇到问题时，和小孩一样都需要外界帮助解决自己的问题。你可能需要向某人寻求帮助，你该找谁呢？
