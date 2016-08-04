@@ -86,22 +86,14 @@
 
 > 当大人说些不好听的话时，我希望你可以学会说：“你说的并不是事实。”
 
+> 当大人说出“你什么事都做不好”时，你要记得说“你说的并不是事实”。这时你是什么感受？
 
-
-> 当大人说出“你是个白痴”时，你要记得说“你说的并不是事实”。这时你是什么感受？
-
-
- "You're good for absolutely nothing!" Did you remember to say, “That’s not true about me?” How did it feel?
-
-当你说些不友好的话时，我希望你可以学会说：“我其实不是这样想的，这不是我的真实想法。”
 
 RP What if an adult says to you, “You’ll never amount to anything!" Does that hurt?
 
-
-
  How do you handle it?
 
-角色扮演：如果一个大人对你说:“你什么事情都做不成。”这句话让你感觉受伤吗？你又该如何处理呢？
+**角色扮演**：如果一个大人对你说:“你什么事情都做不成。”这句话让你感觉受伤吗？你又该如何处理呢？
 
 
 
