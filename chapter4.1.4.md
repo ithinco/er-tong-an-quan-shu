@@ -54,15 +54,9 @@
 
 #### 情感霸凌
 
-Do grown-ups ever treat you differently because of their problems?
+大人们是否会因为他们个人的问题，而对你的态度发生变化？
 
-大人是否因为他们个人的问题对你的态度发生变化？
-
-
-
-Sure they do. Everyone gets cranky sometimes; everyone gets frustrated sometimes.
-
-他们肯定这样做过。每个人都会有时候心情沮丧或者脾气暴躁。
+他们肯定这么做过。每个人都会偶尔心情沮丧或者脾气暴躁。
 
 But just because an adult gets upset and says things that aren't very nice, that doesn't make what they say true.
 
