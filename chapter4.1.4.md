@@ -64,7 +64,7 @@
 
 > 如果我对你说：“你是个白痴。”你会不会感觉很受伤？
 
-> 我难道真认为你是个白痴吗？当然不是！
+> 难道我这么说，就真的认为你是个白痴吗？当然不是！
 
  This time, I want you to practice saying "That's not true about me" inside your head when I say something that isn’t very nice.
 
