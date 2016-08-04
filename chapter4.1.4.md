@@ -20,9 +20,7 @@
 
 当你认识到自己有这些行为时，你是什么感受？
 
-Did you go back and apologize or do anything to make up for your behavior?
-
-你是否会因为以上行为向别人道歉或者做出任何弥补行为？
+你是否会因为以上行为向别人道歉或者进行弥补？
 
 How did you feel after that?
 
