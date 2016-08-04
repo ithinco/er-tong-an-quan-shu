@@ -58,9 +58,7 @@
 
 他们肯定这么做过。每个人都会偶尔心情沮丧或者脾气暴躁。
 
-But just because an adult gets upset and says things that aren't very nice, that doesn't make what they say true.
-
-但是仅仅因为他们自己心情不好，说出的一些不是很友好的话并不代表他们的真实想法。
+但是仅仅因为他们自己心情不好时说出的一些不好的话，并不意味着这是他们的真实想法。
 
 RP I need someone to help me. Teacher will play role of adult is all these examples.
 
