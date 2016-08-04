@@ -76,9 +76,8 @@
 
 你会不会感觉受伤？
 
- Is it true just because I say it? Of course not!
+难道我这么说，就真是那个意思吗？当然不是！
 
-我难道真是那个意思吗？当然不是！
 
  How does having someone say something like this feel in your body?
 
