@@ -82,9 +82,7 @@
 
 > 你还有其他感觉吗？
 
- What response do you feel like making?
-
-你想做出什么样的回应？
+> 你想做出什么样的回应？
 
  This time, when I say something unkind to you, I want you to say, "That's not true about me" inside your head.
 
