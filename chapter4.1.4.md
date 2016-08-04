@@ -80,17 +80,11 @@
 
 假如有人因为觉得你坏而伤害你的身体（比如重重地打你），你会怎么做？
 
- Is that all right?
-
 这种行为对吗？
-
- Would you tell someone?
 
 你会告诉别人吗？
 
-What if someone spanks you so hard it leaves bruises and marks that are there the next day.
-
-如果有人狠狠地在你屁股上打了一巴掌，甚至第二天还有掌印和淤血。
+假如有人狠狠地在你屁股上打了一巴掌，甚至第二天还有掌印和淤血，你会怎么做？
 
 Do you think that would be too much?
 
