@@ -74,9 +74,7 @@
 
 **角色扮演**：如果一个大人说：“你是个坏女孩。“你会感觉受伤吗？
 
-Discussion: If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that. Grown-ups sometimes need help with handling their problems just as kids do. You might need to be the person to ask for that help. Who would you tell?
-
-讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。成年人遇到问题时，和小孩一样都需要外界帮助解决自己的问题。你可能需要向某人寻求帮助，你该找谁呢？
+讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉别人。成年人在遇到一些问题时，也会像孩子一样需要外界帮助。如果你需要向某人寻求帮助，你会找谁呢？
 
 #### 身体霸凌
 
