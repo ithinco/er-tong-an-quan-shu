@@ -58,29 +58,17 @@
 
 你需要明白，第二天身上还有淤青或者痕迹的惩罚绝对不能发生。如果大人这样做，说明他们自己存在问题，并把问题发泄在孩子身上。在你为自己寻求帮助时，大人们通常也会得到帮助，来解决他们自己的问题。
 
-Telling someone else about what is happening to you is important so you don’t continue to get hurt and the adult can get help for their problem.
-
 把发生的一切告诉他人非常重要，因为只有这样，你才不会继续受到伤害，大人的问题也可以得到解决。
 
-Would it take a lot of courage to ask for help in a situation like this? Absolutely.
-
 在这样的处境中，寻求帮助需不需要巨大的勇气？答案是必须的。
-
-Is it important that you do it? Absolutely!
 
 你这样做重不重要？绝对重要！
 
 #### 情感霸凌
 
-Do grown-ups ever hurt you with their words?
-
 大人们是否对你说过伤人的话？
 
-
-
-Just because an adult gets upset and says things that aren't very nice, that doesn't make what they say true.
-
-但是仅仅因为他们自己心情不好，说出的一些不是很友好的话并不代表他们的真实想法。
+但是仅仅因为他们自己心情不好时说出的一些不好的话，并不意味着这是他们的真实想法。
 
 RP I need someone to help me.
 
