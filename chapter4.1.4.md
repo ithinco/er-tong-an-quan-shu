@@ -86,21 +86,13 @@
 
 假如有人狠狠地在你屁股上打了一巴掌，甚至第二天还有掌印和淤血，你会怎么做？
 
-Do you think that would be too much?
-
 你认为这过分吗？
-
-It's not all right for kids to be punished in a way that leaves bruises or marks that are there the next day.
 
 这种做法是非常不正确的。
 
-If that happened to you, who would you tell?
+如果有人这样对你，你会告诉谁？
 
-如果有人这样对你做，你会告诉谁？
-
-Next time we're going to talk about how to tell so you really get help when you need it.
-
-下一次我们将讨论有人对自己这样做事，该如何告诉他人，获得帮助？
+下一次我们将讨论有人对自己这样做时，该如何告诉他人以获得帮助。
 
 #### 活动
 
