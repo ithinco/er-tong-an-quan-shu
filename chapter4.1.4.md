@@ -78,7 +78,7 @@ Discussion: If someone hurts you with his or her words, and it happens to you a 
 
 讨论：如果有人用言语伤害你，而且这种情况经常发生，你应该告诉某些人。成年人遇到问题时，和小孩一样都需要外界帮助解决自己的问题。你可能需要向某人寻求帮助，你该找谁呢？
 
-身体欺凌
+#### 身体霸凌
 
 What if someone injures your body, like hitting you too hard, because they say you were bad?
 
