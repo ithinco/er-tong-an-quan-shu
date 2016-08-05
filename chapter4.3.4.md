@@ -66,15 +66,9 @@
 
 >* 同时当我说那些伤人的话语时，你要对你自己说：“我不是那样的。”
 
-Step 2: Teacher: Again throw the papers or balls and say, “You’re an idiot?” “You never get anything right!” “I wish you belonged to someone else!”
-
-步骤二：老师：再朝孩子扔一次纸张或者玩具球，并说到：“你是笨蛋吗?” “你什么事情也做不对！”“我真希望你不是我的孩子！”
-
-How does that feel? How is it different?
+步骤二：老师：再朝孩子扔一次纸张或者玩具球，并说：“你是笨蛋吗?” “你什么事情都做不好！”“我真希望你不是我的孩子！”
 
 你感觉怎样？和上次有什么不同？
-
-Did the words hurt you that time?
 
 这些话语伤到你了吗？
 
