@@ -58,19 +58,11 @@
 
 > 倡导者：假如你看见一个大点的孩子在抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
 
- Again, emphasize the role of the observers.
-
-How do you think your friend feels?
-
-How do you feel seeing this happen?
-
-What could you do?
-
 > 和之前一样，你依然要强调旁观者发挥的作用
 
-你认为你朋友感觉如何？
+你认为你朋友是什么感受？
 
-看到这一幕，你感觉如何？
+看到这一幕，你是什么感受？
 
 你会做什么？
 
