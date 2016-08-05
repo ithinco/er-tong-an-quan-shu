@@ -40,39 +40,19 @@
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
- Bullies: You are making fun of a younger kid on the playground, saying things about how s/he looks or acts.
+> 施暴者：你们正在取笑一个新来的小孩，对这位小孩的外貌或行为指指点点。
 
-欺凌者：你们正在操场上嘲笑一个比你们小的孩子，对他们的长相或行为说三道四。
+> 倡导者：你知道这种行为很不对，会让这个小孩感到很难过。你会怎么做？
 
- Advocate: These bullies are your friends, but you know this is wrong. What could you do?
+> 强调旁观者的参与。如果他们有任何犹豫，要提醒他们讨论：
 
-劝说者：这些欺凌者都是你的朋友，但是你知道这个行为是错误的。你会怎么做?
+>* 排挤及排挤带给人的感受
 
- Emphasize the role of the observers. If there is any hesitation, remind them about discussions of:
+>* 受害者的感受
 
-要强调旁观者的参与。如果他们有任何犹豫，要提醒他们讨论：
+>* 旁观者的感受
 
-Exclusion and how it makes people feel
-
-How the bullying kids feel
-
-How the observers feel
-
-排外及排外带给人的感受
-
-被欺凌小孩的感受
-
-旁观者的感受
-
-
-
-
-
-RP I need 5 people to help me. (3 bullies, 1 victim, 1 advocate)
-
-角色扮演：我需要5个孩子帮我（3位欺凌者，1位受害者及1位劝说者）
-
-
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
  Bullies: You are intimidating someone into giving up his or her CD’s.
 
