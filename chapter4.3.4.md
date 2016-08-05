@@ -34,15 +34,11 @@
 
 #### 情感霸凌
 
-大人有对你说过伤人的话吗？
+大人们是否对你说过伤人的话？
 
-Just because an adult gets upset and says things that aren't very nice, that doesn't make what they say true.
+但是仅仅因为他们自己心情不好时说出的一些不好的话，并不意味着这是他们的真实想法。
 
-是仅仅因为他们自己心情不好，说出的一些不是很友好的话并不代表他们的真实想法
-
-What if someone says to you, (say this loudly, like you mean it) "You're an idiot. I can’t believe you think you’re smart." Does that hurt?
-
-如果有人对你说（大声说，让对方觉得好像你真这样认为）：“你个白痴，你竟然还认为自己很聪明。”你会很受伤吗?
+如果有人对你说（大声说，让对方觉得好像你真这样认为）：“你个白痴，你竟然还认为自己很聪明。”你会觉得很受伤吗？
 
 Where do you feel that in your body?
 
