@@ -78,30 +78,22 @@
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
-> 施暴者：你们在取笑一个年龄比你小的小孩，并说：“你长得好丑，你妈都不喜欢你！”
+> 施暴者：你们在取笑一个年龄比你小的小孩，并说：“你长得好丑，你妈妈都不喜欢你！”
 
+> 倡导者：你会如何做?模拟所有的场景。
 
+> 和之前一样，你依然要强调旁观者发挥的作用：
 
- Advocate: What could you do? Act this out.
+>* 讨论受害者的感受
 
-劝说者：你会如何做?模拟所有的场景。
+>* 看到这一幕，你是什么感受？
 
- Again, emphasize the role of the observers.
-
-再次强调旁观者的角色很重要。
 
 Discuss how this makes the bullied child feel.
 
 Discuss how the bullying child feels.
 
 Discuss how you feel seeing this happen.
-
-
-
-讨论被欺凌小孩的感受
-
-
-
 讨论欺凌小孩的感受
 
 
