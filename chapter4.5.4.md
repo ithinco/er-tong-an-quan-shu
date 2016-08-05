@@ -28,9 +28,7 @@
 
 你们最近有谁作为倡导者阻止过霸凌行为？
 
-If you acted as an advocate, how did you feel?
-
-如果你作为劝阻者阻止了一场欺凌，你感觉如何？
+如果你作为倡导者阻止过霸凌行为，当时是什么感受？
 
 Have you ever reported bullying behavior to an adult?
 
