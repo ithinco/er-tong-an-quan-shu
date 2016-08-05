@@ -108,11 +108,7 @@
 
 #### 活动
 
-Think of one or more people you have treated badly. Apologize to them in the next 24 hours. Notice how you feel as you are thinking about apologizing, how you feel while you are apologizing and how you feel after you have apologized. Does apologizing make any difference in how you feel toward the person or how the person feels toward you?
+找出一个你曾经霸凌过或言语伤害过的人，并在接下来的 24 小时里对他/她道歉。注意自己道歉时是什么感受，道歉之后又是什么感受。道歉之后，你对他/她及他/她对你的感受是否有所改变？
 
-找出一个你曾经欺凌或言语伤害过的人，并在接下来的24小时对他/她道歉。注意自己道歉时感受如何，道歉之后感觉又如何。道歉之后，你对他/她及他/她对你的感受是否有改变？
-
-Notice how often group bullying behavior occurs in what you watch on television. Keep track of how often you see an advocate intervene. Bring specific examples to the next class.
-
-观察电视节目中出现群体欺凌行为的次数，并且留意劝说者进行干预的次数。下一次课堂上，你们要和同学们分享具体的案例
+观察电视中出现集体霸凌行为的次数，并且留意倡导者进行干预的次数。下一次上课时，你们要和同学们分享具体的案例。
 
