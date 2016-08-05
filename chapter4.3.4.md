@@ -78,8 +78,6 @@
 
 老师：这次不扔东西，只说那些伤人的词语。“你什么事情都做不好。”“你没救了，你永远也学不会这个。”听到这些话语，你感觉受伤吗？
 
-So you really do have a choice about whether you let hurtful things people say into yourself or not. This same thing works with things kids say to you. You have a choice.
-
 所以，对于那些伤人的话语，你可以自己选择听进去或是当做没听见。同样，小孩对你说那些话时，你也可以当做没听见。
 
 RP Note: Have a child who is particularly sensitive to what other kids say to him or her come up. You start saying things so the child can practice disregarding them. Then have 6 children line up and say things so the child can experience not caring what they say and not being aggravated by it. Do this with several children who need to learn this skill. This is particularly effective with bullies who believe they are set off by what people say to them. They too can learn to ignore other people’s taunts.
