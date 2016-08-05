@@ -78,7 +78,7 @@
 
  Teacher: This time just say the words without throwing anything. "You can't get anything right." "You're hopeless, you’ll never learn this." Did you let it in?
 
-老师：这次不扔东西，只说那些伤人的词语。“你什么事情也做不对。”“你没救了，你永远也学不会这个。”听到这些话语，你感觉受伤吗？
+老师：这次不扔东西，只说那些伤人的词语。“你什么事情都做不好。”“你没救了，你永远也学不会这个。”听到这些话语，你感觉受伤吗？
 
 So you really do have a choice about whether you let hurtful things people say into yourself or not. This same thing works with things kids say to you. You have a choice.
 
