@@ -42,8 +42,6 @@
 
 你身体的哪个部位觉得很难受？
 
-What feelings do you have?
-
 你都有哪些感觉？
 
 What response do you feel like making?
