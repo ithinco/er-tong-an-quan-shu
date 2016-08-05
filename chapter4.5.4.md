@@ -126,7 +126,6 @@ I’d like you to pay attention to how you treat other people and practice takin
 我希望你注意自己是如何对待别人的？同时，你要学会在伤害他人后承担责任，弥补错误。
 #### 活动
 
-
 Think of one or more people you have treated badly. Apologize to them in the next 24 hours. Notice how you feel as you are thinking about apologizing, how you feel while you are apologizing and how you feel after you have apologized. Does apologizing make any difference in how you feel toward the person or how the person feels toward you?
 
 找出一个你曾经欺凌或言语伤害过的人，并在接下来的24小时对他/她道歉。注意自己道歉时感受如何，道歉之后感觉又如何。道歉之后，你对他/她及他/她对你的感受是否有改变？
