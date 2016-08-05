@@ -72,11 +72,7 @@
 
 > 受害者：你们会怎么做？模拟所有可能的场景。
 
-
-
- If you just avoid them, how does that make you feel?
-
-如果你们成功地躲开了他们，你感觉如何？
+如果你躲开他们，会是什么感受？
 
 
 
