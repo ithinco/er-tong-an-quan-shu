@@ -126,13 +126,6 @@
 
 下一节课里，我们会讨论当你真的需要帮助时，你该如何去寻求帮助。
 
-
-
-Activity
-
-1. Make a list of all the grown-ups that could help you with a problem. Get their phone numbers and make your own resource directory.
-
 #### 活动
 
 制作一张写有当你遇到问题时会向他/她求助的名字清单。写下他们的电话号码，开始制作自己的电话簿。
-
