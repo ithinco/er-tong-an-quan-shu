@@ -92,9 +92,7 @@
 
 你需要一直告诉自己“他说的并不对”，而且你需要向另一位大人寻求帮助。
 
-Physical Bullying
-
-身体欺凌
+#### 身体霸凌
 
 How many of you think the grown-ups you live with have problems? (Most kids know adults have problems and have no reluctance about saying so.)
 
