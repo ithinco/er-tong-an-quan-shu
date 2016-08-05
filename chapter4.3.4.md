@@ -74,9 +74,7 @@
 
 > 注意：如果孩子还是觉得受伤，说明他们还是在意刚刚那些话语。你可以试着让他们说：“我不是这样的。”先是大声的说出这句话，然后保持沉默。
 
-Step 3: Now, if someone was really angry, they wouldn’t want to see you stepping aside, so this time just see the words coming toward you and then taking a big detour around you. At the same time say to yourself “That’s not true about me.”
-
-步骤3:现在，如果有人非常气愤，他们不想看见你躲开，这一次你看见这些话语直接朝你砸去，但最后绕开了你。同时，你一定要对自己说：“他说的不是对的，那不是我。”
+步骤三：现在，如果有人非常气愤，他们不想看见你躲开，这一次是直接对你说并朝你砸去。这时，你一定要对自己说：“他说的不对，那不是我。”
 
  Teacher: This time just say the words without throwing anything. "You can't get anything right." "You're hopeless, you’ll never learn this." Did you let it in?
 
