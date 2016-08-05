@@ -72,9 +72,7 @@
 
 这些话语伤到你了吗？
 
-Note: If they did the child is still letting the hurtful words in, try having them say, “That’s not true about me,” out loud first and then silently.
-
-注意：如果孩子还是觉得受伤，说明他们还是在意刚刚那些话语。你可以试着让他们说：“我不是这样的。”先是大声的说出这句话，然后保持沉默。
+> 注意：如果孩子还是觉得受伤，说明他们还是在意刚刚那些话语。你可以试着让他们说：“我不是这样的。”先是大声的说出这句话，然后保持沉默。
 
 Step 3: Now, if someone was really angry, they wouldn’t want to see you stepping aside, so this time just see the words coming toward you and then taking a big detour around you. At the same time say to yourself “That’s not true about me.”
 
