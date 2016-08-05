@@ -57,6 +57,8 @@
 RP I need 3 people to help me (1 bully 1 victim, 1 advocate)
 
 **角色扮演**：我需要 3 个同学来帮我。（一位欺凌者，一位受害者及一位劝说者）
+（3 个施暴者，1 个受害者，1 个倡导者）
+
 
 
 
