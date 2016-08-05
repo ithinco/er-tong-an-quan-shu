@@ -40,8 +40,6 @@
 
 如果你承诺成为霸凌行为受害人的倡导者，要么自己出面干预，要么向大人求助，请举起你的手。
 
-RP I need 5 people to help me (3 bullies 1 victim, 1 advocate)
-
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
  Advocate: What if your friends are making fun of a new kid, saying things about how s/he looks or acts.
