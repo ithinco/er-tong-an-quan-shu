@@ -16,7 +16,7 @@ To recognize bullying behaviors in themselves.
 
 To act after they have been a bully to clean it up.
 
-能够辨别欺凌行为
+在看到时能识别出霸凌行为
 
 能够感同身受
 
