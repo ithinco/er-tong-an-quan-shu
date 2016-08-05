@@ -40,9 +40,7 @@
 
 如果有人对你说（大声说，让对方觉得好像你真这样认为）：“你个白痴，你竟然还认为自己很聪明。”你会觉得很受伤吗？
 
-Where do you feel that in your body?
-
-你身体哪个部位觉得很难受？
+你身体的哪个部位觉得很难受？
 
 What feelings do you have?
 
