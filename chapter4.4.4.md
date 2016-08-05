@@ -40,4 +40,133 @@
 
 如果你承诺成为霸凌行为受害人的倡导者，要么自己出面干预，要么向大人求助，请举起你的手。
 
+RP I need 5 people to help me (3 bullies 1 victim, 1 advocate)
+
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
+
+ Advocate: What if your friends are making fun of a new kid, saying things about how s/he looks or acts.
+
+劝说者：如果你的朋友们正在取笑一个新来的小孩，对这位小孩的行为或相貌指指点点。
+
+ You know this is wrong and makes the new kid feel bad. What could you do?
+
+你知道这个行为很不对，会让这个小孩感到很难过。你会怎么做呢？
+
+ Emphasize the role of the observers. If there is any hesitation, remind them about discussions of:
+
+Exclusion and how it makes people feel
+
+How the bullying kids feel
+
+How the observers feel
+
+ 要强调旁观者的参与。如果他们有任何犹豫，要提醒他们讨论：
+
+排外及排外带给人的感受
+
+被欺凌小孩的感受
+
+旁观者的感受
+
+RP I need 3 people to help me (1 bully 1 victim, 1 advocate)
+
+角色扮演：我需要3名同学帮助我（一位欺凌者，一位受害者及一位劝说者）
+
+
+
+ Advocate: What if you saw an older kid taking lunch money away from one of your friends. What could you do to help your friend?
+
+劝说者：如果你看见一个大点的孩子抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
+
+ Again, emphasize the role of the observers.
+
+How do you think your friend feels?
+
+How do you feel seeing this happen?
+
+What could you do?
+
+你这次，你依然要强调旁观者发挥的作用
+
+你认为你朋友感觉如何？
+
+看到这一幕，你感觉如何？
+
+你会做什么？
+
+RP I need 4 people to help me (3 bullies 1 victim)
+
+角色扮演：我需要四个同学帮助我（3位欺凌者和1位受害者）
+
+
+
+ What if a group of kids in your neighborhood threatens you? What would you do? Who would you tell?
+
+如果你家附近一群小孩威胁你，你会做什么？你会告诉谁？
+
+ Discuss role of avoidance, how does that make you feel? Is it possible that sometimes avoidance is the best response?
+
+讨论躲避的作用，躲避之后你感觉如何？有些时候，躲避是不是最好的回应？
+
+RP I need 5 people to help me (3 bullies 1 victim, 1 advocate)
+
+角色扮演：我需要5个孩子帮我（3位欺凌者，1位受害者及1位劝说者）
+
+ Advocate: What if you see a group of kids saying to another kid things like, “You’re so stupid, you can’t even remember your name!” What could you do?
+
+ 劝说者：如果你看见一群小孩在对一个小孩说“你太蠢了，甚至都不能记住你的名字”之类的话语。你会怎么做？
+
+ Again, emphasize the role of the observers.
+
+这次，你依然要重视旁观者发挥的作用
+
+Discuss how this makes the bullied child feel.
+
+Discuss how the bullying child feels.
+
+Discuss how you feel seeing this happen.
+
+讨论被欺凌小孩的感受
+
+讨论欺凌者的感受
+
+讨论当时目睹这一幕的感受
+
+
+
+Discussion: How many of you can think of a time when you were a bully, or made someone feel bad with your words?
+
+讨论：你们有多少人想起自己曾经有个时候也欺负过别人或者说了一些让别人难过的话？
+
+ Discuss specific instances including the feelings of the bully and being bullied.
+
+要具体讨论这个例子，包括讲述被欺凌者和欺凌者当时的感受。
+
+Did anyone tell you your behavior wasn’t nice?
+
+有人告诉你这种行为时不对的吗？
+
+How did that make you feel?
+
+你当时感觉如何？
+
+Did you apologize or do something else to make the other person feel better?
+
+你当时有道歉吗或者做了一些让被欺凌者好受点的事情吗？
+
+How did that make you feel?
+
+这样做之后，你感觉如何？
+
+I’d like you to pay attention to how you treat other people and practice taking responsibility for cleaning up after you’ve hurt someone else.
+
+我希望你注意自己是如何对待别人的？同时，你要学会在伤害他人后承担责任，弥补错误。
+
+Activity
+
+活动
+
+Think of someone you have been unkind to, or have bullied. Apologize to that person in the next 24 hours. Notice how you feel anticipating apologizing, while you are apologizing, and how you feel after you apologize. Did apologizing make any difference in how you feel about the other person or how the other person feels about you?
+
+找出一个你曾经欺凌或言语伤害过的人，并在接下来的24小时对他/她道歉。注意自己道歉时感受如何，道歉之后感觉又如何。道歉之后，你对他/她及他/她对你的感受是否有改变？
 
