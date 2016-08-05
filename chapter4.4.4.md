@@ -76,8 +76,6 @@
 
 讨论躲避的作用，躲避之后你感觉如何？有些时候，躲避是不是最好的回应？
 
-RP I need 5 people to help me (3 bullies 1 victim, 1 advocate)
-
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
  Advocate: What if you see a group of kids saying to another kid things like, “You’re so stupid, you can’t even remember your name!” What could you do?
