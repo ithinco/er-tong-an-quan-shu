@@ -86,7 +86,7 @@
 
 Everyone experiences unkind words from time to time and this skill is for knowing how to handle the occasional insult. For some kids, however, this happens all the time and it can be really hard not to take it in.
 
-每个人有时候都会经历一些不友好的话语，这项技能可以帮助应对偶尔的冒犯。对一些小孩来说，他们一直都在承受一些伤人的话语，很难做到完全不理会。
+每个人都会偶尔经历一些不友好的话语，这项技能可以帮助应对偶尔的冒犯。对一些小孩来说，他们一直都在承受一些伤人的话语，很难做到完全不理会。
 
 If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that.
 
