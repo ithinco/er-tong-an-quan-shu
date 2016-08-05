@@ -42,11 +42,9 @@
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
-> 倡导者：假如你的朋友们正在取笑一个新来的小孩，对这位小孩的外貌或行为指指点点，你会怎么做？
+> 倡导者：假如你的朋友们正在取笑一个新来的小孩，对这位小孩的外貌或行为指指点点。
 
- You know this is wrong and makes the new kid feel bad. What could you do?
-
-你知道这个行为很不对，会让这个小孩感到很难过。你会怎么做呢？
+> 你知道这种行为很不对，会让这个小孩感到很难过。你会怎么做？
 
  Emphasize the role of the observers. If there is any hesitation, remind them about discussions of:
 
