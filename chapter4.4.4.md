@@ -61,7 +61,7 @@
 
  Advocate: What if you saw an older kid taking lunch money away from one of your friends. What could you do to help your friend?
 
-劝说者：如果你看见一个大点的孩子抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
+> 倡导者：如果你看见一个大点的孩子抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
 
  Again, emphasize the role of the observers.
 
