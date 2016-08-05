@@ -100,7 +100,5 @@
 
 #### 活动
 
-Think of someone you have been unkind to, or have bullied. Apologize to that person in the next 24 hours. Notice how you feel anticipating apologizing, while you are apologizing, and how you feel after you apologize. Did apologizing make any difference in how you feel about the other person or how the other person feels about you?
-
-找出一个你曾经欺凌或言语伤害过的人，并在接下来的24小时对他/她道歉。注意自己道歉时感受如何，道歉之后感觉又如何。道歉之后，你对他/她及他/她对你的感受是否有改变？
+找出一个你曾经霸凌过或言语伤害过的人，并在接下来的 24 小时里对他/她道歉。注意自己道歉时是什么感受，道歉之后又是什么感受。道歉之后，你对他/她及他/她对你的感受是否有所改变？
 
