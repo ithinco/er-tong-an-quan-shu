@@ -6,16 +6,6 @@
 
 #### 目标
 
-To recognize bullying when they see it.
-
-To recognize their feelings as an observer.
-
-To role-play intervention when they observe bullying.
-
-To recognize bullying behaviors in themselves.
-
-To act after they have been a bully to clean it up.
-
 在看到时能识别出霸凌行为
 
 体味作为旁观者的感受
