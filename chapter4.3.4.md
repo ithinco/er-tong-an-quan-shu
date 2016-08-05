@@ -32,9 +32,7 @@
 
 RP Who has an example of a time that you were unkind or a bully and later apologized. Let’s role-play each example and see how it goes.
 
-角色扮演：项目成员向大家讲述自己曾经对他人不友善或者欺凌他人，但是后来向当事人道了歉的经历。项目成员对每一段经历进行角色扮演。
-
-
+**角色扮演**：项目成员向大家讲述自己曾经对他人不友善或者欺凌他人，但是后来向当事人道了歉的经历。项目成员对每一段经历进行角色扮演。
 
 Hurtful Words
 
