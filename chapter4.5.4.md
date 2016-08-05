@@ -90,7 +90,6 @@
 
 >* 看到这一幕，你是什么感受？
 
-
 Discussion: How many of you can think of a time when you were a bully, or made someone feel bad with your words in the past few days?
 
 讨论：你们有多少人想起自己曾经有个时候也欺负过别人或者说了一些让别人难过的话？
