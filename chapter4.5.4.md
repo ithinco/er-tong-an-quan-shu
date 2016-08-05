@@ -94,18 +94,11 @@ Discussion: How many of you can think of a time when you were a bully, or made s
 
 讨论：你们有多少人想起自己曾经有个时候也欺负过别人或者说了一些让别人难过的话？
 
-
-
 Did you do anything to clean up your behavior? Did you ask the other person to forgive you? Did you apologize? If not, is it cleaned up?
-
-
 
 你是否采取任何行动进行弥补？你是否叫另一个小孩去原谅你？你是否进行了道歉？如果没有，这件事情是否得到了处理？
 
-RP I need 5 people to help me. (3 bullies, 1 victim, 1 bully turned advocate)
-
-角色扮演：我需要5个孩子帮我（3位欺凌者，1位受害者及1位劝说者）
-
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
 
  Bullies: You are making fun and saying unkind things to the fifth child?
@@ -131,13 +124,7 @@ How did it feel to apologize for the bully and for the bullied person?
 I’d like you to pay attention to how you treat other people and practice taking responsibility for cleaning up after you’ve hurt someone else.
 
 我希望你注意自己是如何对待别人的？同时，你要学会在伤害他人后承担责任，弥补错误。
-
-
-
-
-
-Activity
-
+#### 活动
 
 
 Think of one or more people you have treated badly. Apologize to them in the next 24 hours. Notice how you feel as you are thinking about apologizing, how you feel while you are apologizing and how you feel after you have apologized. Does apologizing make any difference in how you feel toward the person or how the person feels toward you?
