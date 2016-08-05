@@ -56,12 +56,7 @@
 
 **角色扮演**：我需要 3 个同学来帮我。（1 个施暴者，1 个受害者，1 个倡导者）
 
-
-
-
- Advocate: What if you saw an older kid taking lunch money away from one of your friends. What could you do to help your friend?
-
-> 倡导者：如果你看见一个大点的孩子抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
+> 倡导者：假如你看见一个大点的孩子在抢你一个朋友的午餐钱，你会如何去帮助你的朋友？
 
  Again, emphasize the role of the observers.
 
