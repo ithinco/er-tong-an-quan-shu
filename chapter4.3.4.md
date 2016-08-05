@@ -16,9 +16,7 @@
 
 #### 老师主导的讨论和角色扮演
 
-Who can identify some changes that have happened in this community as a result of your taking a stand about bullying?
-
-学习此项目之后，谁能指出我们这个团体发生的一些变化吗？
+谁能告诉我，在学习完本课程之后，自己所在的社区有了哪些改变？
 
 Who has a specific instance when you were an advocate and stopped bullying from happening?
 
