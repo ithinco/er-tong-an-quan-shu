@@ -88,21 +88,13 @@
 
 > 要具体讨论这个例子，包括受害者和霸凌者当时的感受。
 
-Did anyone tell you your behavior wasn’t nice?
+有人告诉你这种行为不对吗？
 
-有人告诉你这种行为时不对的吗？
+你当时是什么感受？
 
-How did that make you feel?
+你当时有道歉或是做一些让受害者好受点的事情吗？
 
-你当时感觉如何？
-
-Did you apologize or do something else to make the other person feel better?
-
-你当时有道歉吗或者做了一些让被欺凌者好受点的事情吗？
-
-How did that make you feel?
-
-这样做之后，你感觉如何？
+这样做之后，你是什么感受？
 
 I’d like you to pay attention to how you treat other people and practice taking responsibility for cleaning up after you’ve hurt someone else.
 
