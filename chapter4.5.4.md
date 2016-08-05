@@ -92,37 +92,20 @@
 
 讨论：在过去几天里，有多少人曾经霸凌过别人或者说了一些让别人难过的话？
 
-
-Did you do anything to clean up your behavior? Did you ask the other person to forgive you? Did you apologize? If not, is it cleaned up?
-
-你是否采取任何行动进行弥补？你是否叫另一个小孩去原谅你？你是否进行了道歉？如果没有，这件事情是否得到了处理？
+你是否采取过任何行动进行弥补？你是否请求对方去原谅你？你是否进行了道歉？如果没有，这件事情是否得到了处理？
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
+> 施暴者：你们一起嘲笑第五个小孩，并对他恶语相向。
 
- Bullies: You are making fun and saying unkind things to the fifth child?
+> 倡导者：你对自己的卑劣行为表示道歉。表演这一场景。
 
-欺凌者：你们一起嘲笑第五个小孩，对他恶语相向？
-
- Advocate: You apologize for being mean. Act this out.
-
-劝说者：你对自己没有采取行动表示道歉，对此情景进行模拟。
-
- Have every child practice apologizing. The concept of apologizing and actually finding the words to do so, and then doing it with eye contact and appropriate body language, are two very different things. Children need practice.
-
-指导每个小孩练习道歉。字面上的道歉与实际行动道歉完全是两码事。实际行动道歉需要适当的言语，还有眼神交流及恰当的肢体语言。对于小孩而言，道歉需要练习。
-
-
+> 指导每个小孩练习道歉。字面上的道歉与实际进行道歉完全是两码事。实际进行道歉需要适当的言语，还有眼神交流及恰当的肢体语言。对于小孩而言，道歉需要练习。
 
 How did it feel to apologize for the bully and for the bullied person?
 
+我希望你能注意自己对待其他人的方式，并练习在伤害别人之后进行弥补。
 
-
-
-
-I’d like you to pay attention to how you treat other people and practice taking responsibility for cleaning up after you’ve hurt someone else.
-
-我希望你注意自己是如何对待别人的？同时，你要学会在伤害他人后承担责任，弥补错误。
 #### 活动
 
 Think of one or more people you have treated badly. Apologize to them in the next 24 hours. Notice how you feel as you are thinking about apologizing, how you feel while you are apologizing and how you feel after you have apologized. Does apologizing make any difference in how you feel toward the person or how the person feels toward you?
