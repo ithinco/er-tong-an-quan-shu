@@ -68,7 +68,7 @@ At the same time say “That’s not true about me” inside your head when I sa
 
 >* 当你听到那些话和看到纸张朝你过来，靠边站
 
->* 同时当我说那些伤人的话语，你自己要对你自己说：“我不是那样的。”
+>* 同时当我说那些伤人的话语时，你要对你自己说：“我不是那样的。”
 
 Step 2: Teacher: Again throw the papers or balls and say, “You’re an idiot?” “You never get anything right!” “I wish you belonged to someone else!”
 
