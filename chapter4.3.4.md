@@ -94,67 +94,37 @@
 
 #### 身体霸凌
 
-How many of you think the grown-ups you live with have problems? (Most kids know adults have problems and have no reluctance about saying so.)
+有多少人认为成年人也有自己的问题要面对？
 
-你们有多少人认为自己周围的大人存在问题？（大多数小孩知道他们的父母存在问题，也不排斥说出这一点。）
+大多数孩子都知道自己的父母有问题要面对，也不排斥说出这一点。
 
-Do adults ever treat you differently because of their problems?
+大人们是否会因为他们个人的问题，而对你的态度发生变化？
 
-大人是否因为他们个人的问题对你的态度发生变化？
-
-What are some of the ways that you know the grown-ups around you are under stress? No names or specifics.
-
-你通过哪些途径知道周围的大人压力很大？（不记名讨论，也不必详细叙述）
-
-How many of you have ever been punished?
+你通过哪些途径知道大人压力很大？不要说出名字。
 
 你们有多少人被父母惩罚过？
 
-Did you ever feel that the punishment was unfair? (Most kids have this experience.)
+你是否觉得惩罚很不公平？（大多数孩子都有这种经历）
 
-你是否觉得很不公平？（大多数小孩都有这种经历）
+假如有人的惩罚伤害了你的身体，你会怎么做？
 
-What if someone punishes you in a way that injures your body?
+假如有人狠狠地在打了你作为惩罚，甚至第二天还有淤青和淤血，你会怎么做？
 
-如果有人惩罚你，导致你身体受伤？
+假如他们这样做仅仅是因为觉得你表现不好，你会怎么做？
 
-What if that punishment is something like hitting you so hard that it leaves bruises or marks that are there the next day?
-
-如果对你的惩罚，比如狠狠地打了你，导致你第二天身上还有痕迹或者淤青？
-
-What if they say they only did it because you were bad? Is that true?
-
-如果他们这样做仅仅是因为觉得你表现不好？你真的是表现不好吗?
-
-Would you want to tell someone?
-
-你会把这件事告诉别人吗？
-
-Would you be afraid to tell?
+你会告诉别人吗？
 
 你会害怕告诉别人吗？
 
-No child ever deserves to be punished in a way that leaves marks or bruises that are there the next day. An adult who does that is having problems that are being taken out on the child. They need to get some help with their problems just as kids get help with problems.
+你需要明白，第二天身上还有淤青或者痕迹的惩罚绝对不能发生。如果大人这样做，说明他们自己存在问题，并把问题发泄在孩子身上。在你为自己寻求帮助时，大人们通常也会得到帮助，来解决他们自己的问题。
 
-你需要明白，第二天身上还有淤青或者痕迹的惩罚绝对不能发生。如果大人这样做，说明他们自己存在问题，并把问题发泄在孩子身上。如果你自己寻求帮助，大人们经常也会得到帮助，解决他们自己的问题。
-
-
-
-Telling another grownup about what is happening to you is important. They can help the adult that is hurting you to get help so they can deal with their problems in better ways.
-
-你要把发生在你身上的事情告诉另一位大人，这一点非常重要。因为，这样可以帮助哪位伤害你的大人用更好的方式解决他们自己的问题。
-
-Would it take a lot of courage to ask for help in a situation like this? Absolutely!
+把发生的一切告诉他人非常重要，因为只有这样，你才不会继续受到伤害，大人的问题也可以得到解决。
 
 在这样的处境中，寻求帮助需不需要巨大的勇气？答案是必须的。
 
-Is it important that you do it? Absolutely!
-
 你这样做重不重要？绝对重要！
 
-Next time we’re going to talk about how to tell so you really get help when you need it.
-
-下一次，我们会讨论当你真的需要帮助时，你该如何去寻求帮助？
+下一节课里，我们会讨论当你真的需要帮助时，你该如何去寻求帮助。
 
 
 
@@ -162,6 +132,7 @@ Activity
 
 1. Make a list of all the grown-ups that could help you with a problem. Get their phone numbers and make your own resource directory.
 
-活动
+#### 活动
 
-列出一张写有当你遇到问题时会向他/她求助的名字清单。写下他们的电话号码，制作自己的电话簿。
+制作一张写有当你遇到问题时会向他/她求助的名字清单。写下他们的电话号码，开始制作自己的电话簿。
+
