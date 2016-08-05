@@ -30,25 +30,15 @@
 
 如果你作为倡导者阻止过霸凌行为，当时是什么感受？
 
-Have you ever reported bullying behavior to an adult?
+你是否向大人报告过霸凌行为？
 
-你是否有将欺凌行为报告给大人？
+你那样做是什么感受？
 
-How did you feel about doing that?
+你那样做之后发生了什么事?
 
-你那样做感觉如何？
+如果大人对你的报告无动于衷，你是什么感受
 
-What happened?
-
-你那样做，之后事情是如何演变的?
-
-If the adult did nothing, how did you feel about that?
-
-如果大人对你的倾诉无动于衷，你感觉如何？
-
-RP I need 5 people to help me. (3 bullies, 1 victim, 1 advocate)
-
-角色扮演：我需要5个孩子帮我（3位欺凌者，1位受害者及1位劝说者）
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
  Bullies: You are making fun of a younger kid on the playground, saying things about how s/he looks or acts.
 
