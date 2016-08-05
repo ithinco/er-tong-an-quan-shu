@@ -58,23 +58,13 @@
 
 > 倡导者：你会如何去干预？
 
+> 表演可能的回应。和之前一样，你依然要强调旁观者发挥的作用：
 
+>* 你认为你朋友是什么感受？
 
- Act out possible responses. Again, emphasize the role of the observers.
+>* 看到这一幕，你是什么感受？
 
-How do you think the kid being intimidated feels?
-
-How do you feel seeing this happen?
-
-What could you do?
-
-做出一切可能的回应。再次强调旁观者的角色很重要。
-
-你认为小孩被欺负后感觉如何？
-
-你目睹这一幕感觉如何？
-
-你会采取什么行动？
+>* 你可以做什么？
 
 RP I need 7 people to help me. (4 bullies, 3 victim)
 
