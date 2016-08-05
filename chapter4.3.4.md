@@ -18,9 +18,7 @@
 
 谁能告诉我，在学习完本课程之后，自己所在的社区有了哪些改变？
 
-Who has a specific instance when you were an advocate and stopped bullying from happening?
-
-谁能举出一个具体的例子，讲述自己曾经挺身与欺凌者理论过，并成功地阻止了欺凌？
+谁能举出一个具体的例子，讲述自己曾经作为倡导者与霸凌者理论过，并成功地阻止了霸凌？
 
 Who can identify a time when you were being a bully and stopped yourself?
 
