@@ -86,9 +86,7 @@
 
 每个人都会偶尔听到一些不友好的话语，这项技能可以帮助应对偶尔的冒犯。对一些孩子来说，他们一直都在承受一些伤人的话语，很难做到完全不理会。
 
-If someone hurts you with his or her words, and it happens to you a lot, you should tell someone about that.
-
-如果有人一直用言语伤害你，你应该找人倾诉。
+如果有人一直用言语伤害你，你应该告诉别人。
 
 If someone says unkind and hurtful things to you on a regular basis, they need to get some help with their problems. It’s not about you; it’s about the person saying the unkind things. Another adult needs to be the one to help the person who says the unkind things.
 
