@@ -98,10 +98,7 @@
 
 我希望你能注意自己对待其他人的方式，并练习在伤害别人之后进行弥补。
 
-
-Activity
-
-活动
+#### 活动
 
 Think of someone you have been unkind to, or have bullied. Apologize to that person in the next 24 hours. Notice how you feel anticipating apologizing, while you are apologizing, and how you feel after you apologize. Did apologizing make any difference in how you feel about the other person or how the other person feels about you?
 
