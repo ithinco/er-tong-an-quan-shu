@@ -44,8 +44,6 @@
 
 你都有哪些感觉？
 
-What response do you feel like making?
-
 你想做出什么回应？
 
 Now I have an exercise that will help you learn not to take what people say inside, to not let people’s words hurt you.
