@@ -66,10 +66,7 @@
 
 >* 你可以做什么？
 
-RP I need 7 people to help me. (4 bullies, 3 victim)
-
-角色扮演：我需要七位同学帮助我。（4位欺凌者，3位受害者）
-
+**角色扮演**：我需要 7 个同学来帮我。（4 个施暴者，3 个受害者）
 
 
  Bullies: You are intimidating a group of kids in the after school program.
