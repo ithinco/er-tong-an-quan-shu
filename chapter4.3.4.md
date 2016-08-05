@@ -60,10 +60,6 @@
 
 这种情况下，谁才是有问题的那个？你还是那个大人？答案是那个大人，而且她还在你身上发泄。
 
-Step aside as you see the words and paper coming and
-
-At the same time say “That’s not true about me” inside your head when I say the hurtful words.
-
 你完全没有理由让自己受伤。所以，我希望你：
 
 >* 当你听到那些话和看到纸张朝你过来，靠边站
