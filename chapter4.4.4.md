@@ -76,19 +76,12 @@
 
 > 倡导者：假如你看见一群小孩在对一个小孩说“你太蠢了，甚至都记不住自己的名字”之类的话语。你会怎么做？
 
-> 和前面一样，你依然要重视旁观者发挥的作用
+> 和前面一样，你依然要重视旁观者发挥的作用：
+>* 讨论受害者的感受
 
-Discuss how this makes the bullied child feel.
+>* 讨论霸凌者的感受
 
-Discuss how the bullying child feels.
-
-Discuss how you feel seeing this happen.
-
-讨论被欺凌小孩的感受
-
-讨论欺凌者的感受
-
-讨论当时目睹这一幕的感受
+>* 讨论当时目睹这一幕的感受
 
 
 
