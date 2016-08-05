@@ -22,17 +22,11 @@
 
 这一切是怎么发生的？
 
-Have any of you seen someone else being bullied lately?
+你们有谁最近看见过别人遭受霸凌吗？
 
-最近，你们有谁看见别人被欺负吗？
+你当时是什么感受？
 
-How did you feel?
-
-你感觉如何？
-
-Have any of you acted as advocates recently?
-
- 你们有谁最近阻止过欺凌行为？
+你们有谁最近作为倡导者阻止过霸凌行为？
 
 If you acted as an advocate, how did you feel?
 
