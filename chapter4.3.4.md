@@ -50,27 +50,15 @@
 
 > 注意：参加下一个练习的孩子自尊心要很强。你对这个孩子说下面的话语，同时，朝他身上扔玩具球或者几张纸。对孩子说这些话时，你必须要让他感觉你真的是那样认为，只有这样孩子的感觉才最强烈。但是这个练习的目的是教会孩子不要把那些伤人的词语放在心里。这个练习很好地阐述了一句格言：“棍棒和石头或许会打断我的骨头，但是言语永远无法伤害我。”
 
-STEP 1: (use a pretty secure child) I have three pieces of paper (or nerf balls). I want you to pretend that these are the words I am saying and to let them hit you.
-
 步骤一：（选一个可靠的孩子完成这个练习）我手里有三张纸，也可以是三个玩具球。我希望你假装这些就是我要说的话并且让这几张纸或玩具球打到你。
 
-“You are so stupid!” “You never do anything right!” “I hate you!”
-
-“你太蠢了！”“你什么事情也不做对！”“我讨厌你！”
-
-Was that pretty shocking? Was it hurtful?
+“你太蠢了！”“你什么事情都做不好！”“我讨厌你！”
 
 是不是很震惊？有没有感觉很受伤？
 
-Is it true about you? Of course not.
-
 你真的是我说的那样吗？当然不是!
 
-Who has the problem here, you or the adult? The adult does and she is taking her problem out on you.
-
 这种情况下，谁才是有问题的那个？你还是那个大人？答案是那个大人，而且她还在你身上发泄。
-
-There’s no reason for you to take that into yourself. So this time I want you to:
 
 Step aside as you see the words and paper coming and
 
@@ -78,9 +66,9 @@ At the same time say “That’s not true about me” inside your head when I sa
 
 你完全没有理由让自己受伤。所以，我希望你：
 
-当你听到那些话和看到纸张朝你过来，靠边站
+>* 当你听到那些话和看到纸张朝你过来，靠边站
 
-同时当我说那些伤人的话语，你自己要对你自己说：“我不是那样的。”
+>* 同时当我说那些伤人的话语，你自己要对你自己说：“我不是那样的。”
 
 Step 2: Teacher: Again throw the papers or balls and say, “You’re an idiot?” “You never get anything right!” “I wish you belonged to someone else!”
 
