@@ -84,9 +84,7 @@
 
 >* 讨论当时目睹这一幕的感受
 
-Discussion: How many of you can think of a time when you were a bully, or made someone feel bad with your words?
-
-讨论：你们有多少人想起自己曾经有个时候也欺负过别人或者说了一些让别人难过的话？
+讨论：有多少人曾经霸凌过别人或者说了一些让别人难过的话？
 
 > 要具体讨论这个例子，包括受害者和霸凌者当时的感受。
 
