@@ -68,10 +68,7 @@
 
 **角色扮演**：我需要 7 个同学来帮我。（4 个施暴者，3 个受害者）
 
-
- Bullies: You are intimidating a group of kids in the after school program.
-
-欺凌者：放学后，你们在欺负几位年纪小点的小孩
+> 施暴者：放学后，你们在欺负几个年纪小点的小孩。
 
  Victims: What would you do? Act out this situation.
 
