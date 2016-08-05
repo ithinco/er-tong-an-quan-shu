@@ -20,9 +20,7 @@
 
 谁能举出一个具体的例子，讲述自己曾经作为倡导者与霸凌者理论过，并成功地阻止了霸凌？
 
-Who can identify a time when you were being a bully and stopped yourself?
-
-谁有在欺凌他人的时候，自己主动停止吗？
+有谁在霸凌他人的时候，自己主动停止霸凌行为的？
 
 Did you apologize?
 
