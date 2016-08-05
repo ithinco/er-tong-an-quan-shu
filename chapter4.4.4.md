@@ -96,9 +96,8 @@
 
 这样做之后，你是什么感受？
 
-I’d like you to pay attention to how you treat other people and practice taking responsibility for cleaning up after you’ve hurt someone else.
+我希望你能注意自己对待其他人的方式，并练习在伤害别人之后进行弥补。
 
-我希望你注意自己是如何对待别人的？同时，你要学会在伤害他人后承担责任，弥补错误。
 
 Activity
 
