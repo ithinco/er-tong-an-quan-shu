@@ -76,9 +76,7 @@
 
 > 倡导者：假如你看见一群小孩在对一个小孩说“你太蠢了，甚至都记不住自己的名字”之类的话语。你会怎么做？
 
- Again, emphasize the role of the observers.
-
-这次，你依然要重视旁观者发挥的作用
+> 和前面一样，你依然要重视旁观者发挥的作用
 
 Discuss how this makes the bullied child feel.
 
