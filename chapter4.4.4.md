@@ -68,8 +68,6 @@
 
 **角色扮演**：我需要 4 个同学来帮我。（3 个施暴者，1 个受害者）
 
-
-
  What if a group of kids in your neighborhood threatens you? What would you do? Who would you tell?
 
 如果你家附近一群小孩威胁你，你会做什么？你会告诉谁？
@@ -80,7 +78,7 @@
 
 RP I need 5 people to help me (3 bullies 1 victim, 1 advocate)
 
-角色扮演：我需要5个孩子帮我（3位欺凌者，1位受害者及1位劝说者）
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
  Advocate: What if you see a group of kids saying to another kid things like, “You’re so stupid, you can’t even remember your name!” What could you do?
 
