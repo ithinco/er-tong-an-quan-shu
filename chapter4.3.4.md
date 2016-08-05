@@ -82,7 +82,7 @@
 
 RP Note: Have a child who is particularly sensitive to what other kids say to him or her come up. You start saying things so the child can practice disregarding them. Then have 6 children line up and say things so the child can experience not caring what they say and not being aggravated by it. Do this with several children who need to learn this skill. This is particularly effective with bullies who believe they are set off by what people say to them. They too can learn to ignore other people’s taunts.
 
-角色扮演：注意：抽选一个对别人说的话尤其敏感的小孩做这个练习。你先这个小孩说一些伤人的话语，这样孩子可以练习慢慢地不理会那些话。然后，你让6个小孩排成一队，逐个对这个小孩说那些话。这样，小孩可以学会不理会他们伤人的话语，也不会被激怒。需要掌握这个技能的小孩都要做这个练习。他们也可以学会忽略别人的嘲讽。
+**角色扮演**：注意：抽选一个对别人说的话尤其敏感的小孩做这个练习。你先这个小孩说一些伤人的话语，这样孩子可以练习慢慢地不理会那些话。然后，你让6个小孩排成一队，逐个对这个小孩说那些话。这样，小孩可以学会不理会他们伤人的话语，也不会被激怒。需要掌握这个技能的小孩都要做这个练习。他们也可以学会忽略别人的嘲讽。
 
 Adult Verbal Bullying
 
