@@ -52,7 +52,7 @@
 
 STEP 1: (use a pretty secure child) I have three pieces of paper (or nerf balls). I want you to pretend that these are the words I am saying and to let them hit you.
 
-步骤一：（选一个可靠的小孩完成这个练习）我手里有三张纸，也可以是三个玩具球。我希望你假装这些就是我要说的话并且让这几张纸或玩具球打到你。
+步骤一：（选一个可靠的孩子完成这个练习）我手里有三张纸，也可以是三个玩具球。我希望你假装这些就是我要说的话并且让这几张纸或玩具球打到你。
 
 “You are so stupid!” “You never do anything right!” “I hate you!”
 
