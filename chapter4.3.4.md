@@ -84,9 +84,7 @@ RP Note: Have a child who is particularly sensitive to what other kids say to hi
 
 **角色扮演**：注意：抽选一个对别人说的话尤其敏感的小孩做这个练习。你先这个小孩说一些伤人的话语，这样孩子可以练习慢慢地不理会那些话。然后，你让6个小孩排成一队，逐个对这个小孩说那些话。这样，小孩可以学会不理会他们伤人的话语，也不会被激怒。需要掌握这个技能的小孩都要做这个练习。他们也可以学会忽略别人的嘲讽。
 
-Adult Verbal Bullying
-
-大人的言语欺凌
+#### 大人的言语霸凌
 
 Everyone experiences unkind words from time to time and this skill is for knowing how to handle the occasional insult. For some kids, however, this happens all the time and it can be really hard not to take it in.
 
