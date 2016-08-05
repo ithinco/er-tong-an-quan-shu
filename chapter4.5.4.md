@@ -20,9 +20,7 @@
 
 我们的社区是不是越来越对霸凌行为无法容忍？
 
-How is that happening?
-
- 这种改变是进展的？
+这一切是怎么发生的？
 
 Have any of you seen someone else being bullied lately?
 
