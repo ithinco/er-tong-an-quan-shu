@@ -22,15 +22,9 @@
 
 有谁在霸凌他人的时候，自己主动停止霸凌行为的？
 
-Did you apologize?
+你有为自己的霸凌行为道歉吗？
 
-你有为欺凌他人道歉吗？
-
- Was your apology accepted?
-
-别人接受了你的道歉吗？
-
-How did you feel?
+对方接受了你的道歉吗？
 
 你感觉如何？
 
