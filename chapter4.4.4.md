@@ -69,10 +69,7 @@
 **角色扮演**：我需要 4 个同学来帮我。（3 个施暴者，1 个受害者）
 
 > 假如你家附近一群小孩威胁你，你会怎么做？你会告诉谁？
-
- Discuss role of avoidance, how does that make you feel? Is it possible that sometimes avoidance is the best response?
-
-> 讨论躲避的作用，躲避之后你感觉如何？有些时候，躲避是不是最好的回应？
+> 讨论躲避的作用，躲避之后你是什么感受？有时候躲避是不是最好的回应？
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
