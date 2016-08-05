@@ -74,23 +74,11 @@
 
 如果你躲开他们，会是什么感受？
 
+有时候躲避是不是最好的回应？
 
+**角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
- Is it possible that sometimes avoidance is the best response?
-
-有时候，躲开是不是有可能是最好的回应？
-
-
-
-RP I need 5 people to help me. (3 bullies, 1 victim, 1 advocate)
-
-角色扮演：我需要5位同学帮助我（3位欺凌者，1位受害者和1位劝说者）
-
-
-
- Bullies: You are teasing a younger kid saying things “You’re so ugly, your mother doesn’t even like you!”
-
-欺凌者：你们在取笑一位年龄比你小的小孩，并说道：“你长得好久，你妈都不喜欢你！”
+> 施暴者：你们在取笑一个年龄比你小的小孩，并说：“你长得好丑，你妈都不喜欢你！”
 
 
 
