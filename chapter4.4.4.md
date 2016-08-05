@@ -76,7 +76,7 @@
 
  Advocate: What if you see a group of kids saying to another kid things like, “You’re so stupid, you can’t even remember your name!” What could you do?
 
-> 倡导者：如果你看见一群小孩在对一个小孩说“你太蠢了，甚至都不能记住你的名字”之类的话语。你会怎么做？
+> 倡导者：假如你看见一群小孩在对一个小孩说“你太蠢了，甚至都记不住自己的名字”之类的话语。你会怎么做？
 
  Again, emphasize the role of the observers.
 
