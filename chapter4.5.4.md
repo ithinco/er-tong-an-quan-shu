@@ -90,9 +90,8 @@
 
 >* 看到这一幕，你是什么感受？
 
-Discussion: How many of you can think of a time when you were a bully, or made someone feel bad with your words in the past few days?
+讨论：在过去几天里，有多少人曾经霸凌过别人或者说了一些让别人难过的话？
 
-讨论：你们有多少人想起自己曾经有个时候也欺负过别人或者说了一些让别人难过的话？
 
 Did you do anything to clean up your behavior? Did you ask the other person to forgive you? Did you apologize? If not, is it cleaned up?
 
