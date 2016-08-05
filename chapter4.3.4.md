@@ -32,9 +32,7 @@
 
 **角色扮演**：从小组中选取一个欺凌他人然后道歉的例子，进行角色扮演游戏。
 
-Hurtful Words
-
-伤人词语
+#### 伤人言语
 
 Do grown-ups ever hurt you with their words?
 
