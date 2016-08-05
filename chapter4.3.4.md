@@ -46,9 +46,7 @@
 
 你想做出什么回应？
 
-Now I have an exercise that will help you learn not to take what people say inside, to not let people’s words hurt you.
-
-现在，我有一个练习帮助你们不要把别人说的那些话往心里去，这样你就不会被那些话伤到。
+现在，我要让你们做一个练习，帮助你们不要把别人说的那些话往心里去，这样你就不会被那些话伤到了。
 
 NOTE: Choose a child with pretty good ego strength for this next exercise. Say the following and throw either nerf balls or pieces of paper as you say the words so they hit the child. Say these phrases like you mean it so the full impact is felt. As shocking as it is, the point of this exercise is to teach children not to internalize hurtful things that are said to them. This exercise makes real the adage “Sticks and stones may break my bones, but words can never hurt me.”
 
