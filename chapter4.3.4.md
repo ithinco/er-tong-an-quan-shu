@@ -88,13 +88,9 @@
 
 如果有人一直用言语伤害你，你应该告诉别人。
 
-If someone says unkind and hurtful things to you on a regular basis, they need to get some help with their problems. It’s not about you; it’s about the person saying the unkind things. Another adult needs to be the one to help the person who says the unkind things.
-
 如果有人经常对你说不友善或者伤人的话语，这些人自己也需要别人帮助解决他们自己的问题。问题不在你身上，而是那个对你说不友善言语的人。他需要另一位大人帮助自己解决问题。
 
-You need to keep telling yourself “That’s not true about me” and you need to get another adult to help.
-
-你需要一直告诉自己“那不是真实的我”，而且你需要向另一位大人寻求帮助。
+你需要一直告诉自己“他说的并不对”，而且你需要向另一位大人寻求帮助。
 
 Physical Bullying
 
