@@ -26,11 +26,9 @@
 
 对方接受了你的道歉吗？
 
-你感觉如何？
+你当时是什么感受？
 
-How do you think the other person felt?
-
-你认为其他人感觉如何？
+你认为对方是什么感受？
 
 RP Who has an example of a time that you were unkind or a bully and later apologized. Let’s role-play each example and see how it goes.
 
