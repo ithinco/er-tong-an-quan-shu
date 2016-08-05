@@ -54,9 +54,7 @@
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
- Bullies: You are intimidating someone into giving up his or her CD’s.
-
-欺凌者：你们在恐吓某个小孩，强迫他把CD给你们
+> 施暴者：你们在恐吓某个小孩，强迫他把 CD 给你们。
 
  Advocate: What could you do to intervene?
 
