@@ -70,9 +70,7 @@
 
 > 施暴者：放学后，你们在欺负几个年纪小点的小孩。
 
- Victims: What would you do? Act out this situation.
-
-受害者：你们会怎么做？模拟所有可能的场景
+> 受害者：你们会怎么做？模拟所有可能的场景。
 
 
 
