@@ -66,7 +66,7 @@ How do you feel seeing this happen?
 
 What could you do?
 
-你这次，你依然要强调旁观者发挥的作用
+> 和之前一样，你依然要强调旁观者发挥的作用
 
 你认为你朋友感觉如何？
 
