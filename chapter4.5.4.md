@@ -18,9 +18,7 @@
 
 #### 老师主导的讨论和角色扮演
 
-Are we becoming a community that is not going to accept bullying behavior?
-
-我们这个团队是否对欺凌行为无法容忍？
+我们的社区是不是越来越对霸凌行为无法容忍？
 
 How is that happening?
 
