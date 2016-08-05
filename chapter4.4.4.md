@@ -44,7 +44,7 @@
 
  Advocate: What if your friends are making fun of a new kid, saying things about how s/he looks or acts.
 
-劝说者：如果你的朋友们正在取笑一个新来的小孩，对这位小孩的行为或相貌指指点点。
+倡导者：如果你的朋友们正在取笑一个新来的小孩，对这位小孩的行为或相貌指指点点。
 
  You know this is wrong and makes the new kid feel bad. What could you do?
 
