@@ -68,9 +68,7 @@
 
 **角色扮演**：我需要 4 个同学来帮我。（3 个施暴者，1 个受害者）
 
- What if a group of kids in your neighborhood threatens you? What would you do? Who would you tell?
-
-如果你家附近一群小孩威胁你，你会做什么？你会告诉谁？
+> 假如你家附近一群小孩威胁你，你会怎么做？你会告诉谁？
 
  Discuss role of avoidance, how does that make you feel? Is it possible that sometimes avoidance is the best response?
 
