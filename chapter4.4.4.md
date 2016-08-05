@@ -46,21 +46,13 @@
 
 > 你知道这种行为很不对，会让这个小孩感到很难过。你会怎么做？
 
- Emphasize the role of the observers. If there is any hesitation, remind them about discussions of:
-
-Exclusion and how it makes people feel
-
-How the bullying kids feel
-
-How the observers feel
-
 > 强调旁观者的参与。如果他们有任何犹豫，要提醒他们讨论：
 
->* 排外及排外带给人的感受
+>* 排挤及排挤带给人的感受
 
-被欺凌小孩的感受
+>* 受害者的感受
 
-旁观者的感受
+>* 旁观者的感受
 
 RP I need 3 people to help me (1 bully 1 victim, 1 advocate)
 
