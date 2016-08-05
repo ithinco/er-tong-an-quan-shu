@@ -50,7 +50,7 @@
 
 NOTE: Choose a child with pretty good ego strength for this next exercise. Say the following and throw either nerf balls or pieces of paper as you say the words so they hit the child. Say these phrases like you mean it so the full impact is felt. As shocking as it is, the point of this exercise is to teach children not to internalize hurtful things that are said to them. This exercise makes real the adage “Sticks and stones may break my bones, but words can never hurt me.”
 
-注意：参加下一个练习的孩子自尊心要很强。你对这个孩子说下面的话语，同时，朝他身上扔玩具球或者几张纸。对小孩说这些词组时，你必须要让他感觉你真的是那样认为，只有这样小孩的感觉才最强烈。但是这个练习的目的是教会小孩不要把那些伤人的词语放在心里。这个练习很好的阐述了一句格言：“棍棒和石头或许会打断我的骨头，但是言语永远无法伤害我。”
+> 注意：参加下一个练习的孩子自尊心要很强。你对这个孩子说下面的话语，同时，朝他身上扔玩具球或者几张纸。对小孩说这些词组时，你必须要让他感觉你真的是那样认为，只有这样小孩的感觉才最强烈。但是这个练习的目的是教会小孩不要把那些伤人的词语放在心里。这个练习很好的阐述了一句格言：“棍棒和石头或许会打断我的骨头，但是言语永远无法伤害我。”
 
 STEP 1: (use a pretty secure child) I have three pieces of paper (or nerf balls). I want you to pretend that these are the words I am saying and to let them hit you.
 
