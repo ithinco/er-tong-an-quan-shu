@@ -34,6 +34,9 @@ RP Who has an example of a time that you were unkind or a bully and later apolog
 
 **角色扮演**：项目成员向大家讲述自己曾经对他人不友善或者欺凌他人，但是后来向当事人道了歉的经历。项目成员对每一段经历进行角色扮演。
 
+从小组中抽取几个欺凌他人然后道歉的例子，进行角色扮演游戏。
+
+
 Hurtful Words
 
 伤人词语
