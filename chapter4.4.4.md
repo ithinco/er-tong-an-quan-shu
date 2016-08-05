@@ -42,9 +42,7 @@
 
 **角色扮演**：我需要 5 个同学来帮我。（3 个施暴者，1 个受害者，1 个倡导者）
 
- Advocate: What if your friends are making fun of a new kid, saying things about how s/he looks or acts.
-
-> 倡导者：如果你的朋友们正在取笑一个新来的小孩，对这位小孩的行为或相貌指指点点。
+> 倡导者：假如你的朋友们正在取笑一个新来的小孩，对这位小孩的外貌或行为指指点点，你会怎么做？
 
  You know this is wrong and makes the new kid feel bad. What could you do?
 
