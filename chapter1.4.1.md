@@ -42,6 +42,8 @@ We also need to change our messages about obeying people in authority. These chi
 
 The central message underlying all the role-plays is this:There isn't anyone in the entire world that children can't say "no" to if they are asked to do something they think:is wrong,that could hurt them, orthat they know they shouldn't do.
 
+#### 孩子须知
+
 
 
 
