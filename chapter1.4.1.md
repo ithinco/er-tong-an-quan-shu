@@ -34,8 +34,7 @@
 
 简而言之，这类在大多数情况下对于孩子来说都可接受的触碰，成了孩子大声说出来的首个机会，而这时距离虐待的发生还有很久。
 
-
-This is also why it is important to keep our own judgements of good and bad out of the role-plays and discussion. A hug may be wonderful or awful depending on the relationship and the intentions of the person involved. Prevention happens at the level of the child with his/her own interpretation of what is happening. Children who have been told, for example, that all hugs are good will not trust their own feelings and will be hampered in their efforts to say "no" when they feel uncomfortable.
+正因为如此，在角色扮演中保持对好坏的判断就非常重要了。拥抱可能很美好，也可能很糟糕，这取决于行动人和孩子的关系以及动机。孩子对正在发生的事情有自己的解读，预防就发生在这一阶段。如果教育孩子说，所有拥抱都是好的，他们就不会信任自己的感觉，也就没那么容易在感觉不舒服时说“不”。
 
 We also need to change our messages about obeying people in authority. These children are old enough to exercise some judgement about the appropriateness of adult requests. Because we cannot -- and should not -- always be available to help children make important choices, they need to have the ability to make those choices for themselves and to know they will be supported when they do. Going through the specific role-plays will give you a sense of whether the children in your group know the difference between blindly doing what they're told and saying "no" when they need to.
 
