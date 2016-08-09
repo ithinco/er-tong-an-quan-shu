@@ -55,9 +55,56 @@ If someone touches you in a way that makes you uneasy, is there anyone other tha
 How would you define communication? Communication is when one person says something – with their body or their words -- and the other person understands what the person meant to communicate.
 
 你还记得有效沟通的三大要素吗？
+
 * 眼神接触
 * 言辞达意
 * 相配的肢体语言
+
+What are some ways that people touch you that you don’t like?
+
+How do you communicate that it's not okay with you?
+
+DO you ever try avoiding the person, or stepping aside or just letting them go ahead and hug you rather than make a fuss? Let’s see what other options you have.
+
+RP: What about if we have a big family get-together and someone comes up to you and touches your hair, pinches your cheeks, or kisses you and you don’t like it? How would you handle a situation like that?Role play several of these situations. Focus on clear verbal communication, consistent body language and eye contact. Be sure your child knows w/he has your permission to speak up, even with family.
+
+RP: What if you have a coach who slaps you on the back every time he sees you? You don't like it and you feel a little weird and embarrassed about all the attention he gives you. What would you do?Actually role-play and practice a response.
+
+RP: What if a friend of your dad's always sits right next to you when he comes to visit and puts his hand on your leg? He seems nice enough, but you feel uncomfortable. You're worried about being rude since he's your dad's friend. What would you do?
+
+If you do things like avoiding the person, or making excuses like you have to go do your homework, could the problem keep coming up? So, is that an effective way to handle the problem?
+
+Are there some kinds of touch you like with some people and not with others?
+
+That's part of individual differences and should be encouraged.
+
+RP: What about touch that seemed okay at first and then changes so it doesn't seem okay anymore? Use an example your child brings up or an example like hugging to long, being too close, rubbing arm or leg or kissing.
+
+Would you feel able about speaking up? What would you do?
+
+What if you do say something and the person doesn’t stop or doesn't respect what you said, or tries to talk you into letting them do what they want to do? What would you do next?
+
+The best thing to say is, "I'm going to tell." That lets the person know you are serious, and you're prepared to get help from another adult if your wishes aren't respected.
+
+Would that be embarrassing or feel like tattling?
+
+Tattling is when they tell on someone so they can get them in trouble. While speaking up and letting the person now they're going to tell may be embarrassing, it' no more difficult than the feelings they'll have if they let the touching continue.
+
+RP: What if an adult friend of yours is putting suntan lotion on you at the pool? After a minute you feel uncomfortable about the way the person is touching you. What do you say and do?
+
+What if the person says something like, "Oh it's ok, we’re special friends." Is it okay?
+
+What if you say "I'm going to tell" and your friend says, "If you tell, I won't be your friend anymore." What would you do?
+
+If someone says they won't be your friend anymore, is that person really your friend?
+
+I don't think so. It's important that you tell someone as soon as you can about what happened.
+
+Your body is part of who you are. People who care about you, and respect you, should also respect your body. When you speak up, they should listen.
+
+If anyone touches you in a way that you don't like, that makes you feel funny inside, or that you think is wrong, what are you going to do?
+
+SPEAK UP and TELL SOMEONE!
 
 
 
