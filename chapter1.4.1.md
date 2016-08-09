@@ -32,7 +32,8 @@
 
 "Getting comfortable with the child... Making them feel comfortable with me...like a hug, start touching their arms, legs, hugging them."
 
-In essence, activities which would be acceptable and normal under most circumstances become the child's first opportunity to speak up -long before the abuse begins.
+简而言之，这类在大多数情况下对于孩子来说都可接受的触碰，成了孩子大声说出来的首个机会，而这时距离虐待的发生还有很久。
+
 
 This is also why it is important to keep our own judgements of good and bad out of the role-plays and discussion. A hug may be wonderful or awful depending on the relationship and the intentions of the person involved. Prevention happens at the level of the child with his/her own interpretation of what is happening. Children who have been told, for example, that all hugs are good will not trust their own feelings and will be hampered in their efforts to say "no" when they feel uncomfortable.
 
