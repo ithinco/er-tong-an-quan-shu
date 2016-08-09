@@ -105,6 +105,3 @@ Your body is part of who you are. People who care about you, and respect you, sh
 If anyone touches you in a way that you don't like, that makes you feel funny inside, or that you think is wrong, what are you going to do?
 
 SPEAK UP and TELL SOMEONE!
-
-
-
