@@ -40,6 +40,8 @@ We also need to change our messages about obeying people in authority. These chi
 
 记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
 
+The central message underlying all the role-plays is this:There isn't anyone in the entire world that children can't say "no" to if they are asked to do something they think:is wrong,that could hurt them, orthat they know they shouldn't do.
+
 
 
 
