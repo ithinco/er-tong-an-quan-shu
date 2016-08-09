@@ -50,6 +50,10 @@ Have you ever found that it can be difficult to speak up to adults or people tha
 
 #### 角色扮演
 
+If someone touches you in a way that makes you uneasy, is there anyone other than you who can take responsibility for communicating about it?
+
+How would you define communication? Communication is when one person says something – with their body or their words -- and the other person understands what the person meant to communicate.
+
 
 
 
