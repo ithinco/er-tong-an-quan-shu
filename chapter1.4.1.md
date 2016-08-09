@@ -54,6 +54,10 @@ If someone touches you in a way that makes you uneasy, is there anyone other tha
 
 How would you define communication? Communication is when one person says something – with their body or their words -- and the other person understands what the person meant to communicate.
 
+你还记得有效沟通的三大要素吗？
+* 眼神接触
+* 言辞达意
+* 相配的肢体语言
 
 
 
