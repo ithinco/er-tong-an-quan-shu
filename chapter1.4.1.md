@@ -38,5 +38,9 @@
 
 We also need to change our messages about obeying people in authority. These children are old enough to exercise some judgement about the appropriateness of adult requests. Because we cannot -- and should not -- always be available to help children make important choices, they need to have the ability to make those choices for themselves and to know they will be supported when they do. Going through the specific role-plays will give you a sense of whether the children in your group know the difference between blindly doing what they're told and saying "no" when they need to.
 
+记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
+
+
+
 
 
