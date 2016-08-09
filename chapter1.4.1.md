@@ -44,6 +44,11 @@ The central message underlying all the role-plays is this:There isn't anyone in 
 
 #### 孩子须知
 
+Have you ever found that it can be difficult to speak up to adults or people that are older than you? We're going to watch some kids learning to speak up so they can communicate exactly what they want to say.
+
+#### 和孩子一起看视频
+
+#### 角色扮演
 
 
 
