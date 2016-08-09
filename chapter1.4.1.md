@@ -25,7 +25,7 @@
 
 在本课中，所有例子都不构成性虐待。然而，如果孩子学会了对他人捏自己脸蛋或举起自己的行为说“不”，他们也就能对其他自己不喜欢的触碰行为说“不”了。
 
-预防发生在虐待开始前，发生在感觉不舒服最开始的那一刻，发生在犯罪分子试图测试孩子是否会配合时。In an article entitled "What Sexual Offenders Tell Us About Strategies" researchers Conte, Wolf and Smith asked offenders, “After you had identified a potential victim, what did you do to engage the child?" The following responses from these offenders eloquently portray the efficacy of The Safe child approach to prevention:
+预防发生在虐待开始前，发生在感觉不舒服最开始的那一刻，发生在犯罪分子试图测试孩子是否会配合时。根据《性侵犯罪的策略》(What Sexual Offenders Tell Us About Strategies)这篇文章所述，性侵罪犯们在找到潜在的受害者后，可能会通过下列方式来接触孩子：
 
 
 "I would initiate different kinds of contact, such as touching the child’s head. Testing the child to see how much she would take before she would pull away."
