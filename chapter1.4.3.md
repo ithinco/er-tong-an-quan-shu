@@ -32,17 +32,17 @@
 
 你这么做过吗？
 
+**角色扮演**：假如你在学校遇到了非常让你难受的事情，当你回到家时，你冲进家，把书甩到桌上，跑进自己的房间然后重重地关上门，我会知道出事了吗？
+
+假如在晚餐时你拉着脸，不说话或不吃饭，我会知道出事了吗？
+
+假如我以为你只是在耍小性子，让你回房间去，这会让事情变得更好还是更糟？
+
+你需要作出什么选择？你怎么做才称得上对自己负责？
+
+你觉得我们会想要知道是什么事让你难受吗？即便事情很难以启齿或让人尴尬。
+
 **角色扮演**：
-
-RP: What if something really upsetting happened at school? When you come home, you storm into the house, throw your books on the table, run up to your room and slam the door? Would I know what is wrong?
-
-What if later that evening you come to the dinner table with a long face, refusing to talk or eat? Would I know what is wrong?
-
-What if I thought you were just being moody and sent you from the table back to your room? Would that make things better or worse?
-
-What choice do you need to make? What would be the responsible thing to do?
-
-Do you think we would want to know what you are upset about, even if it is something hard to talk about or embarrassing?
 
 RP: What if you were faced with a situation where you said one thing and an adult said another, do you think I would believe you or the adult?
 
