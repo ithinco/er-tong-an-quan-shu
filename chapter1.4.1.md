@@ -45,7 +45,7 @@
 
 #### 孩子须知
 
-Have you ever found that it can be difficult to speak up to adults or people that are older than you? We're going to watch some kids learning to speak up so they can communicate exactly what they want to say.
+你是否觉得对大人或比自己年龄大的人大声说话很难？我们将观看一些孩子学习大声说话的过程，以便能准确表达自己想要说的话。
 
 #### 和孩子一起看视频
 
