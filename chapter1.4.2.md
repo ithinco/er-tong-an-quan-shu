@@ -48,12 +48,12 @@
 
 记住，如果你要求某人停止正在做的事，而他们不听，这时我想要你说：“我要告诉大人”。
 
-**角色扮演**：
-RP: What if a friend of your mom or dad comes to visit and puts his arm around you in a way that makes you feel uncomfortable of that seems creepy?
+**角色扮演**：假如你爸爸或你妈妈的一个朋友来做客，但他/她抱着你的方式让你感觉不舒服。
 
-When you try to move away he says, "Oh, you're friend, I came over just to see you." What would you say and do?
+当你试图把他/她的手拿开，对方说：“你是我朋友，我来这就是看你的。”你会怎么说，怎么做？
 
-What if the person says to you, "Don't you like me? If you liked me, you'd sit here with me." What would you say and do?
+假如对方说：“难道你不喜欢我吗？如果你喜欢我，你就这样和我坐着。”你会怎么说，怎么做？
+
 
 We want to create an absolutely clear progression here for children.
 
