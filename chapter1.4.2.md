@@ -44,8 +44,7 @@
 
 #### 角色扮演
 
-Those were some hard situations, but each of the kids found a way to handle what was happening. Let's try some situations and see how you do.
-
+下面的角色扮演游戏中都有一些麻烦的问题，但每个孩子都找到了解决方法。让我们来亲自尝试，看看碰到类似问题时该怎么做。
 
 
 Remember, if you ask someone to stop what they're doing and they don't stop, then I want you to say, "I'm going to tell."
