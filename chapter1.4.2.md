@@ -6,7 +6,7 @@
 
 #### 目标
 
-让孩子练习抵抗常见的胁迫，包括：
+让孩子练习抵抗常见的要挟，包括：
 * 喜欢我/爱我
 * 特殊朋友
 * 绝交
@@ -23,6 +23,21 @@
 通过角色扮演来练习大声说出自己的想法，并进一步发展沟通技能。
 
 #### 大人须知
+
+
+The role-plays in this lesson prepare the child to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
+
+
+
+Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally stand a better chance of resisting abuse, because the offender wants the child's participation and often will not move ahead without some assurance that s/he will not be revealed.
+
+
+
+"I'm going to tell" is the second step for children to extricate themselves from a difficult situation or to avoid sexual abuse. One concern of parents and teachers is whether saying "I'm going to tell" increases the risk of violence or injury to the child. It is believed that it does not. Remember that abusers known to the child are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. Additionally, it's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
+“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
+
+
+在所有情况下，孩子们都必须知道，无论什么时候他们觉得必须说“我会告诉大人”的时候，他们都可以告诉父母或自己信任的人，从而让其他人停止触碰他们。
 
 
 
@@ -59,16 +74,6 @@
 
 
 记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
-
-
-
-> 下面所有角色扮演游戏要传达的核心信息是：
-
-
-
-> 如果有人要求他们去做让他们觉得不对、可能会对自己造成伤害以及认为不应该做的事情时，他们可以对任何人说“不”。
-
-
 
 #### 孩子须知
 
