@@ -91,7 +91,7 @@
 
 假如你确实大声说了，但对方并不停止或尊重你说的话，甚至试图叫你乖乖听话，你接下来会做什么？
 
-The best thing to say is, "I'm going to tell." That lets the person know you are serious, and you're prepared to get help from another adult if your wishes aren't respected.
+你最好说：“我要告诉大人。”这能让对方知道你是认真的，如果对方不照你的话去做，你就要去寻求其他大人的帮助了。
 
 Would that be embarrassing or feel like tattling?
 
