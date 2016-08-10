@@ -94,18 +94,17 @@
 
 #### 复习
 
+当你说“我要告诉大人”时，人们会用很多种方式来尝试让你按照他们说的做。
 
-When you say, "I'm going to tell," there are lots of ways people might try to get you to do what they want you to do.
+他们也许会说：“去告诉吧，我不在乎。”
 
-They might try bribery saying, "Go ahead and tell, I don’t care."
+他们也许会告诉你“没人会信你”或者恐吓、威胁你。
 
-They might tell you that "No one will believe you,” or use intimidation and threats.
+所有这些方式都是在试图控制你。你会让这种事情发生吗？不！
 
-All of these are ways to try to control you. Are you going to let that happen? NO!
+你有责任告诉大人吗？
 
-Is it being responsible to tell?
+告诉大人是好的选择吗？你有责任去为你无法处理的情况寻求帮助吗？
 
-Is telling making a choice that is healthy and good for you? Is it responsible to tell, to get help when you can’t handle something by yourself?
-
-Does that mean it's going to be easy? Probably not, but it’s important to remember that the person who is bothering you probably won’t stop until you do tell someone.
+这是不是意味着事情会很容易呢？也许不，但你要记住，除非你告诉大人，否则骚扰你的人也许永远也不会停下来。
 
