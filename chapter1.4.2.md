@@ -64,37 +64,36 @@
 
 **角色扮演**：假如你最好的朋友的爸爸每次靠近你时，都会摸你的屁股或腿。你要求他停止这种行为，但他没有听，你会怎么说，怎么做？
 
-RP: What if your best friend's dad touches your bottom or your legs every time you get close to him. You ask him to stop, but he keeps doing it. What would you say and do?
+假如当你说“我要告诉大人”时，他说：“对不起，我再也不会做了，不要说出去。”你会怎么说，怎么做？
 
-What if when you say, "I'm going to tell," he says, Oh, I’m sorry, I won't do it again, but please don't tell." What would you say and do?
+假如他说：“不要说出去，我会特别对你，好不好？”这样行吗？
 
-What if he says, "Please don't tell and I'll do special for you. Okay?" Would that be all right?
+这种行为是什么？这是收买。
 
-What is that called? That's called bribery.
+**角色扮演**：假如每当你做了让姐姐不喜欢的事，她都要掐你和揪你的耳朵，你告诉她说很痛，但她还是这么做。
 
-RP: What if your sitter pinches and bends your ear every time you do something she doesn't like? You tell her it hurts, but she keeps doing it.
+当你说“我要告诉大人”时，她说：“去告诉吧，没人会信你。我是姐姐，你要听我的。”你会怎么做？
 
-When you say, "I'm going to tell," she says, "Go ahead and tell, no one will believe you. I'm the sitter and I'm in charge." What would you do?
+这种行为是什么？
 
-What's that called?
+这是恐吓。她试图在不承认自己所作所为的情况下控制你。她有权利这么做吗？
 
-The word for that is intimidation. She's trying to control you without admitting what she's trying to do. Does she have the right to do that?
+**角色扮演**：假如有人对你说：“如果你告诉大人，我会伤害你或你的家人。”
 
-RP: What if someone says to you, "If you tell, I'll hurt you or someone in your family."
+这种行为是什么？
 
-What's that called?
+这是威胁。你永远也不应该独自应对这种情况。
 
-That is a threat and you should never try to handle a situation like that by yourself.
+如果有人对你说这样的话，你会不会感觉很害怕？
 
-Would it be scary if someone said something like that to you?
+不管你有多害怕，你都需要告诉大人，直到有人帮你，否则就一直说下去。
 
-No matter how scared you are, you need to tell and keep telling until someone helps you.
+**角色扮演**：假如你告诉了大人刚刚发生的事，但大人说：“不要傻了，他只是开玩笑。”
 
-RP: What if you tell someone about what happened and they say something like, "Oh don't be silly. They were just joking."
+这时你会怎么做？是的，你要告诉别的大人。
 
-Then what would you do? That's right you'd tell someone else.
+#### 复习
 
-Review
 
 When you say, "I'm going to tell," there are lots of ways people might try to get you to do what they want you to do.
 
