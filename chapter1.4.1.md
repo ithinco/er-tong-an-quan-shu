@@ -41,8 +41,7 @@
 
 > 下面所有角色扮演游戏要传达的核心信息是：
 
-> 
-There isn't anyone in the entire world that children can't say "no" to if they are asked to do something they think:is wrong,that could hurt them, orthat they know they shouldn't do.
+> 如果有人要求他们去做让他们觉得不对、可能会对自己造成伤害以及认为不应该做的事情时，他们可以对任何人说“不”。
 
 #### 孩子须知
 
