@@ -81,10 +81,9 @@
 
 如果你躲开这个人，或是借口说自己要去做作业，问题还会继续出现吗？因此，这是解决这一问题的有效方法吗？
 
+你会喜欢一些人以某种方式触碰你，却不喜欢其他人这样对你吗？
 
-Are there some kinds of touch you like with some people and not with others?
-
-> That's part of individual differences and should be encouraged.
+> 这就是因人而异。
 
 RP: What about touch that seemed okay at first and then changes so it doesn't seem okay anymore? Use an example your child brings up or an example like hugging to long, being too close, rubbing arm or leg or kissing.
 
