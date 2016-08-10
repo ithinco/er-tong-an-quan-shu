@@ -27,10 +27,9 @@
 
 预防发生在虐待开始前，发生在感觉不舒服最开始的那一刻，发生在犯罪分子试图测试孩子是否会配合时。根据《性侵犯罪的策略》(What Sexual Offenders Tell Us About Strategies)这篇文章所述，性侵罪犯们在找到潜在的受害者后，可能会通过下列方式来接触孩子：
 
-“我会测试不同的接触方式，比如摸孩子的头。好知道孩子最多能接受什么程度的接触。”
+> “我会测试不同的接触方式，比如摸孩子的头。好知道孩子最多能接受什么程度的接触。”
 
-“”
-"Getting comfortable with the child... Making them feel comfortable with me...like a hug, start touching their arms, legs, hugging them."
+> “让孩子适应和我呆在一起……让他们不会抵触我……比如拥抱，摸他们的胳膊、腿。”
 
 简而言之，这类在大多数情况下对于孩子来说都可接受的触碰，成了孩子大声说出来的首个机会，而这时距离虐待的发生还有很久。
 
