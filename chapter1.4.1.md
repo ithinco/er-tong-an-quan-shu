@@ -93,7 +93,7 @@
 
 你最好说：“我要告诉大人。”这能让对方知道你是认真的，如果对方不照你的话去做，你就要去寻求其他大人的帮助了。
 
-Would that be embarrassing or feel like tattling?
+这会让你觉得尴尬或感觉自己在打小报告吗？
 
 Tattling is when they tell on someone so they can get them in trouble. While speaking up and letting the person now they're going to tell may be embarrassing, it' no more difficult than the feelings they'll have if they let the touching continue.
 
