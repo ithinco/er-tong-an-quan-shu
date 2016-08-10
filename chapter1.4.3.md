@@ -52,7 +52,7 @@
 
 为了帮助你的朋友，你可以告诉哪些人这件事？
 
-#### 不问问题
+#### “不问问题”原则
 
 In my family we have a No Questions Asked Rule.
 
