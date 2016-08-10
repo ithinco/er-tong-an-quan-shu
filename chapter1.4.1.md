@@ -73,9 +73,7 @@
 
 > 用角色扮演游戏模拟多种情景。重点是言辞达意，相配的肢体语言和眼神接触。确保孩子知道，自己可以大声说话，哪怕是对家人。
 
-
-RP: What if you have a coach who slaps you on the back every time he sees you? You don't like it and you feel a little weird and embarrassed about all the attention he gives you. What would you do?Actually role-play and practice a response.
-**角色扮演**：
+**角色扮演**：假如你的教练每次看到你时都要拍你的背，而你不喜欢这样，觉得有点奇怪和尴尬，你会怎么做？通过角色扮演游戏来练习对此进行回应。
 
 RP: What if a friend of your dad's always sits right next to you when he comes to visit and puts his hand on your leg? He seems nice enough, but you feel uncomfortable. You're worried about being rude since he's your dad's friend. What would you do?
 
