@@ -84,7 +84,7 @@ If you do things like avoiding the person, or making excuses like you have to go
 
 Are there some kinds of touch you like with some people and not with others?
 
-That's part of individual differences and should be encouraged.
+> That's part of individual differences and should be encouraged.
 
 RP: What about touch that seemed okay at first and then changes so it doesn't seem okay anymore? Use an example your child brings up or an example like hugging to long, being too close, rubbing arm or leg or kissing.
 
