@@ -83,7 +83,7 @@
 
 你会喜欢一些人以某种方式触碰你，却不喜欢其他人这样对你吗？
 
-> 这就是因人而异。
+> 这就是因人而异，应该得到鼓励。
 
 RP: What about touch that seemed okay at first and then changes so it doesn't seem okay anymore? Use an example your child brings up or an example like hugging to long, being too close, rubbing arm or leg or kissing.
 
