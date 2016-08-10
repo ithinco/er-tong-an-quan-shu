@@ -76,6 +76,8 @@
 **角色扮演**：假如你的教练每次看到你时都要拍你的背，而你不喜欢这样，觉得有点奇怪和尴尬，你会怎么做？通过角色扮演游戏来练习对此进行回应。
 
 RP: What if a friend of your dad's always sits right next to you when he comes to visit and puts his hand on your leg? He seems nice enough, but you feel uncomfortable. You're worried about being rude since he's your dad's friend. What would you do?
+**角色扮演**：
+
 
 If you do things like avoiding the person, or making excuses like you have to go do your homework, could the problem keep coming up? So, is that an effective way to handle the problem?
 
