@@ -62,7 +62,8 @@
 
 但教练没有听，还是这么做。当你说“我要告诉大人”时，教练说：“去告诉吧，我不在乎。”你会怎么做？你觉得爸爸、妈妈或老师会关心这件事吗？
 
-**角色扮演**：
+**角色扮演**：假如你最好的朋友的爸爸每次靠近你时，都会摸你的屁股或腿。你要求他停止这种行为，但他没有听，你会怎么说，怎么做？
+
 RP: What if your best friend's dad touches your bottom or your legs every time you get close to him. You ask him to stop, but he keeps doing it. What would you say and do?
 
 What if when you say, "I'm going to tell," he says, Oh, I’m sorry, I won't do it again, but please don't tell." What would you say and do?
