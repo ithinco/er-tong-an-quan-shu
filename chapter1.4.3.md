@@ -30,133 +30,42 @@
 
 #### 角色扮演
 
+Have you ever done anything like that?
 
+RP: What if something really upsetting happened at school? When you come home, you storm into the house, throw your books on the table, run up to your room and slam the door? Would I know what is wrong?
 
-下面的角色扮演游戏中都有一些麻烦的问题，但每个孩子都找到了解决方法。让我们来亲自尝试，看看碰到类似问题时该怎么做。
+What if later that evening you come to the dinner table with a long face, refusing to talk or eat? Would I know what is wrong?
 
+What if I thought you were just being moody and sent you from the table back to your room? Would that make things better or worse?
 
+What choice do you need to make? What would be the responsible thing to do?
 
-记住，如果你要求某人停止正在做的事，而他们不听，这时我想要你说：“我要告诉大人”。
+Do you think we would want to know what you are upset about, even if it is something hard to talk about or embarrassing?
 
+RP: What if you were faced with a situation where you said one thing and an adult said another, do you think I would believe you or the adult?
 
+RP: What if your best friend told you a secret and you promised not to tell, but the secret was about something that had happened to your friend and you knew your friend needed help?
 
-**角色扮演**：假如你爸爸或你妈妈的一个朋友来做客，但他/她抱着你的方式让你感觉不舒服。
+Would you be breaking your promise of secrecy if you tell an adult about the problem?
 
+What are your choices? What would be the responsible thing to do?
 
+Would you be afraid your friend might get angry with you for telling the secret? Maybe telling you is the only way your friend can ask for help.
 
-当你试图把他/她的手拿开，对方说：“你是我朋友，我来这就是看你的。”你会怎么说，怎么做？
+Who are some people that you could tell in order to get help for your friend?
 
+No Questions Asked
 
+In my family we have a No Questions Asked Rule.
 
-假如对方说：“难道你不喜欢我吗？如果你喜欢我，你就这样和我坐着。”你会怎么说，怎么做？
+This means that our son can call us anytime, anywhere and ask to be picked up. We agree to do so, no questions asked! On the way home, we can discuss what happened and agree how to handle it, but he knows that he will not be in trouble for having made a smart choice to get out of a bad situation.
 
+I talked about this with him, and all of his friends who had the same offer from me, for many years never thinking I would get the call. But I did get the call, multiple times, from him and from his friends.
 
+This rule can save your child’s life and is an excellent way to end this series of lessons.
 
-在这里，我们要清楚地一步步教会孩子。
+Even though this series of discussions is over, these skills are important in every single day of your child’s life. Keep talking about how you child can be more effective and more capable in managing his/her life.
 
-
-
-首先孩子要说“不”，然后说：“我要告诉大人”，接着就去告诉大人。
-
-
-
-**角色扮演**：假如你在练习体操，但教练亲了你的脸颊，在教导你时离得也太近了，你觉得有点不舒服和害怕，你要求教练不要再这么做，要教练往后退一点，好看得更清楚一点。
-
-
-
-但教练没有听，还是这么做。当你说“我要告诉大人”时，教练说：“去告诉吧，我不在乎。”你会怎么做？你觉得爸爸、妈妈或老师会关心这件事吗？
-
-
-
-**角色扮演**：假如你最好的朋友的爸爸每次靠近你时，都会摸你的屁股或腿。你要求他停止这种行为，但他没有听，你会怎么说，怎么做？
-
-
-
-假如当你说“我要告诉大人”时，他说：“对不起，我再也不会做了，不要说出去。”你会怎么说，怎么做？
-
-
-
-假如他说：“不要说出去，我会特别对你，好不好？”这样行吗？
-
-
-
-这种行为是什么？这是收买。
-
-
-
-**角色扮演**：假如每当你做了让姐姐不喜欢的事，她都要掐你和揪你的耳朵，你告诉她说很痛，但她还是这么做。
-
-
-
-当你说“我要告诉大人”时，她说：“去告诉吧，没人会信你。我是姐姐，你要听我的。”你会怎么做？
-
-
-
-这种行为是什么？
-
-
-
-这是恐吓。她试图在不承认自己所作所为的情况下控制你。她有权利这么做吗？
-
-
-
-**角色扮演**：假如有人对你说：“如果你告诉大人，我会伤害你或你的家人。”
-
-
-
-这种行为是什么？
-
-
-
-这是威胁。你永远也不应该独自应对这种情况。
-
-
-
-如果有人对你说这样的话，你会不会感觉很害怕？
-
-
-
-不管你有多害怕，你都需要告诉大人，直到有人帮你，否则就一直说下去。
-
-
-
-**角色扮演**：假如你告诉了大人刚刚发生的事，但大人说：“不要傻了，他只是开玩笑。”
-
-
-
-这时你会怎么做？是的，你要告诉别的大人。
-
-
-
-#### 复习
-
-
-
-当你说“我要告诉大人”时，人们会用很多种方式来尝试让你按照他们说的做。
-
-
-
-他们也许会说：“去告诉吧，我不在乎。”
-
-
-
-他们也许会告诉你“没人会信你”或者恐吓、威胁你。
-
-
-
-所有这些方式都是在试图控制你。你会让这种事情发生吗？不！
-
-
-
-你有责任告诉大人吗？
-
-
-
-告诉大人是好的选择吗？你有责任去为你无法处理的情况寻求帮助吗？
-
-
-
-这是不是意味着事情会很容易呢？也许不，但你要记住，除非你告诉大人，否则骚扰你的人也许永远也不会停下来。
 
 
 
