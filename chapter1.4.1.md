@@ -99,9 +99,9 @@
 
 **角色扮演**：假如有个大人在游泳池旁边给你涂防晒霜，但在一分钟后，你觉得对方的触碰方式让你感觉不舒服，这时你会怎么说，怎么做？
 
+假如对方说：“没事，我们是不一般的朋友。”这样行吗？
 
-What if the person says something like, "Oh it's ok, we’re special friends." Is it okay?
-
+假如
 What if you say "I'm going to tell" and your friend says, "If you tell, I won't be your friend anymore." What would you do?
 
 If someone says they won't be your friend anymore, is that person really your friend?
