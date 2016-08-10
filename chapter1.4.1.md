@@ -97,8 +97,8 @@
 
 打小报告是你让别的孩子或者兄弟姐妹陷入麻烦，告诉大人你遇到麻烦需要帮助并不是打小报告。虽然大声说出来或许会让你感觉尴尬，但和对方触碰你后的感受相比，就不值一提了。
 
-**角色扮演**：
-RP: What if an adult friend of yours is putting suntan lotion on you at the pool? After a minute you feel uncomfortable about the way the person is touching you. What do you say and do?
+**角色扮演**：假如有个大人在游泳池旁边给你涂防晒霜，但在一分钟后，你觉得对方的触碰方式让你感觉不舒服，这时你会怎么说，怎么做？
+
 
 What if the person says something like, "Oh it's ok, we’re special friends." Is it okay?
 
