@@ -51,9 +51,11 @@
 
 #### 角色扮演
 
-If someone touches you in a way that makes you uneasy, is there anyone other than you who can take responsibility for communicating about it?
+假如有人的触碰方式让你感觉不适，除了你自己之外，还有其他人能帮你说吗？
 
-How would you define communication? Communication is when one person says something – with their body or their words -- and the other person understands what the person meant to communicate.
+你认为沟通是什么？
+
+> 沟通指的是某人用肢体或言语来说了某件事，而对方也理解了这件事。
 
 你还记得有效沟通的三大要素吗？
 
@@ -61,7 +63,7 @@ How would you define communication? Communication is when one person says someth
 * 言辞达意
 * 相配的肢体语言
 
-What are some ways that people touch you that you don’t like?
+你不喜欢别人用什么方式来触碰你？
 
 How do you communicate that it's not okay with you?
 
