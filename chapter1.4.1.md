@@ -89,7 +89,7 @@
 
 你觉得自己能大声说出来吗？你会怎么做？
 
-What if you do say something and the person doesn’t stop or doesn't respect what you said, or tries to talk you into letting them do what they want to do? What would you do next?
+假如你确实大声说了，但对方并不停止或尊重你说的话，甚至试图叫你乖乖听话，你接下来会做什么？
 
 The best thing to say is, "I'm going to tell." That lets the person know you are serious, and you're prepared to get help from another adult if your wishes aren't respected.
 
