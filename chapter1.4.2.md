@@ -54,10 +54,11 @@
 
 假如对方说：“难道你不喜欢我吗？如果你喜欢我，你就这样和我坐着。”你会怎么说，怎么做？
 
+在这里，我们要清楚地一步步教会孩子。
 
-We want to create an absolutely clear progression here for children.
+首先孩子要说“不”，然后说：“我要告诉大人”，接着就去告诉大人。
 
-First they say "no." Then they say, I’m going to tell." Then they tell.
+**角色扮演**：假如你在练习体操，
 
 RP: What if you were taking gymnastics and the man who teaches the class kisses your cheeks and gets too close to your face when he tells you how you did? You feel uncomfortable and intimidated. You ask him to stop and back up a little bit so you can see him better.
 
