@@ -105,11 +105,10 @@
 
 如果对方说不再和你做朋友，那他/她是你真正的朋友吗？
 
-我觉得不是。
-I don't think so. It's important that you tell someone as soon as you can about what happened.
+我觉得不是。一旦碰到这种情况，我希望你马上去告诉大人。
 
-Your body is part of who you are. People who care about you, and respect you, should also respect your body. When you speak up, they should listen.
+你的身体是你的一部分。关心你、尊重你的人也应该尊重你的身体。当你大声说话时，他们应该倾听。
 
-If anyone touches you in a way that you don't like, that makes you feel funny inside, or that you think is wrong, what are you going to do?
+如果有人以你不喜欢、感觉不舒服或认为不对的方式触碰你时，你会怎么做？
 
-SPEAK UP and TELL SOMEONE!
+大声说出来并告诉大人！
