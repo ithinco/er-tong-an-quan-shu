@@ -16,34 +16,12 @@
 
 #### 大人须知
 
-Children classically attempt to get the adults around them to notice that they have a problem. They covertly communicate what is happening to them, hoping we will figure it out. It is important for children to understand that this simply does not work. They must take responsibility for communicating to get the help they need.
-孩子通常会试图让身边的大人注意到自己碰到了问题。他们会暗暗地告诉大人发生在自己身上的事情，希望大人能明白。
+孩子通常会试图让身边的大人注意到自己碰到了问题。他们会暗暗地告诉大人发生在自己身上的事情，希望大人能明白。孩子们需要明白，这样根本行不通。他们必须亲自去寻求自己需要的帮助。
 
+还有些时候，孩子们会为自己根本没做的事而受到责备。在这种情况下，孩子们要为自己说话会尤其困难。通过角色扮演游戏和讨论挑战权威需要什么，孩子们就收获了宝贵的技能。
 
-There are other times when children are blamed for things they had nothing to do with. It is extraordinarily difficult to stand up for themselves under these circumstances. By role-playing and discussing what it takes to stand up to someone in authority, they gain valuable skills.
-
+最后，
 Finally, sometimes children of this age confide in a friend about abuse, making the friend promise not to tell. Children need to know that it is both permissible and responsible to tell a trusted adult about what is happening. It is also useful to share with children that most kids tell other kids about their problems as a way to get help when they're unable to help themselves. In this case, being a real friend means telling an adult who can help.
-
-
-本课中的角色扮演游戏能让孩子们学会识别并抵抗常见的感情要挟，施虐者们经常用到这些把戏。由于 85% 到 90% 的施虐者都是孩子认识的人，而且孩子的貌似“配合”也是成功进行性侵的必要组成部分，因此直接拒绝参与是一个强大的预防工具。
-
-
-
-在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
-
-
-
-“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。记住，施虐者寻找的是温暖、不作评判、亲切的关系。他们不想要拒绝。如果遭到了拒绝，他们更可能转而寻求另一个目标，而不是冒险伤害一个懂得抗拒的孩子。
-
-
-
-在所有情况下，孩子们都必须知道，无论什么时候他们觉得必须说“我会告诉大人”的时候，他们都可以告诉父母或自己信任的人，从而让其他人停止触碰他们。
-
-
-
-记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
-
-
 
 #### 孩子须知
 
