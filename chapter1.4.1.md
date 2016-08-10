@@ -85,8 +85,7 @@
 
 > 这就是因人而异，应该得到鼓励。
 
-RP: What about touch that seemed okay at first and then changes so it doesn't seem okay anymore? Use an example your child brings up or an example like hugging to long, being too close, rubbing arm or leg or kissing.
-**角色扮演**：
+**角色扮演**：假如有人一开始的触碰方式貌似合适，但慢慢就变得不合适了呢？用孩子提到的例子，或者举例如抱得太久太紧，摸手摸脚乃至亲吻。
 
 Would you feel able about speaking up? What would you do?
 
