@@ -20,7 +20,7 @@
 
 还有些时候，孩子们会为自己根本没做的事而受到责备。在这种情况下，孩子们要为自己说话会尤其困难。通过角色扮演游戏和讨论挑战权威需要什么，孩子们就收获了宝贵的技能。
 
-最后，
+最后，有时候这一年龄段的孩子会告诉朋友自己遭受了虐待，但要求朋友承诺不说出去。孩子们需要知道，
 Finally, sometimes children of this age confide in a friend about abuse, making the friend promise not to tell. Children need to know that it is both permissible and responsible to tell a trusted adult about what is happening. It is also useful to share with children that most kids tell other kids about their problems as a way to get help when they're unable to help themselves. In this case, being a real friend means telling an adult who can help.
 
 #### 孩子须知
