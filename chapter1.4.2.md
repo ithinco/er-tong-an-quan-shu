@@ -58,12 +58,11 @@
 
 首先孩子要说“不”，然后说：“我要告诉大人”，接着就去告诉大人。
 
-**角色扮演**：假如你在练习体操，
+**角色扮演**：假如你在练习体操，但教练亲了你的脸颊，在教导你时离得也太近了，你觉得有点不舒服和害怕，你要求教练不要再这么做，要教练往后退一点，好看得更清楚一点。
 
-RP: What if you were taking gymnastics and the man who teaches the class kisses your cheeks and gets too close to your face when he tells you how you did? You feel uncomfortable and intimidated. You ask him to stop and back up a little bit so you can see him better.
+但教练没有听，还是这么做。当你说“我要告诉大人”时，教练说：“去告诉吧，我不在乎。”你会怎么做？你觉得爸爸、妈妈或老师会关心这件事吗？
 
-But he keeps doing it. When you say, "I'm going to tell," he says, "Go ahead and tell, I don’t care.” What would you do? Do you think your mom or dad or teachers would care?
-
+**角色扮演**：
 RP: What if your best friend's dad touches your bottom or your legs every time you get close to him. You ask him to stop, but he keeps doing it. What would you say and do?
 
 What if when you say, "I'm going to tell," he says, Oh, I’m sorry, I won't do it again, but please don't tell." What would you say and do?
