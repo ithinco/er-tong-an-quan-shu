@@ -28,50 +28,11 @@
 The role-plays in this lesson prepare the child to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
 
 
+由于 85% 到 90% 的施虐者都是孩子认识的人，因此在预防虐待上，教育孩子们抵抗要挟和不保密就变得很重要了。在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
 
-Resisting emotional coercion and requests for secrecy are also an essential part of the prevention of abuse. Children who do not acquiesce when pressured emotionally stand a better chance of resisting abuse, because the offender wants the child's participation and often will not move ahead without some assurance that s/he will not be revealed.
-
-
-
-"I'm going to tell" is the second step for children to extricate themselves from a difficult situation or to avoid sexual abuse. One concern of parents and teachers is whether saying "I'm going to tell" increases the risk of violence or injury to the child. It is believed that it does not. Remember that abusers known to the child are looking for a warm, nonjudgmental, affectionate relationship. They don't want or need rejection. Additionally, it's easier for them to find another child than to risk discovery by hurting a child who refuses to go along.
-“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
-
+“我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。记住，施虐者寻找的是温暖、不作评判、亲切的关系。他们不想要拒绝。如果遭到了拒绝，他们更可能转而寻求另一个目标，而不是冒险伤害一个懂得抗拒的孩子。
 
 在所有情况下，孩子们都必须知道，无论什么时候他们觉得必须说“我会告诉大人”的时候，他们都可以告诉父母或自己信任的人，从而让其他人停止触碰他们。
-
-
-
-只要我们教，孩子们很快就会学会，自己能大声说出发生在自己身体上的事情，我们还应该言传身教，让他们知道自己的身体的确属于自己。 小孩子已经知道自己喜欢和不喜欢哪种触碰。他们通过社会交往，对触碰已经有了大概的期望。他们知道哪种触碰不对或让自己感觉不舒服。预防性虐待训练建立在这些元素上，让孩子可以有效、适当地表达自己的感觉。
-
-
-
-在本课中，所有例子都不构成性虐待。然而，如果孩子学会了对他人捏自己脸蛋或举起自己的行为说“不”，他们也就能对其他自己不喜欢的触碰行为说“不”了。
-
-
-
-预防发生在虐待开始前，发生在感觉不舒服最开始的那一刻，发生在犯罪分子试图测试孩子是否会配合时。根据《性侵犯罪的策略》(What Sexual Offenders Tell Us About Strategies)这篇文章所述，性侵罪犯们在找到潜在的受害者后，可能会通过下列方式来接触孩子：
-
-
-
-> “我会测试不同的接触方式，比如摸孩子的头。好知道孩子最多能接受什么程度的接触。”
-
-
-
-> “让孩子适应和我呆在一起……让他们不会抵触我……比如拥抱，摸他们的胳膊、腿。”
-
-
-
-简而言之，这类在大多数情况下对于孩子来说都可接受的触碰，成了孩子大声说出来的首个机会，而这时距离虐待的发生还有很久。
-
-
-
-正因为如此，在角色扮演中保持对好坏的判断就非常重要了。拥抱可能很美好，也可能很糟糕，这取决于行动人和孩子的关系以及动机。孩子对正在发生的事情有自己的解读，预防就发生在这一阶段。如果教育孩子说，所有拥抱都是好的，他们就不会信任自己的感觉，也就没那么容易在感觉不舒服时说“不”。
-
-
-
-我们还需要改变要求孩子服从权威的说法。这些孩子的年纪已经够大，足以判断大人所提的要求是否合适。因为我们无法也不应该总是帮孩子作出重大决策，孩子们需要具备自行作出这些决策的能力，并且知道在有需要时，我们总会支持他们。通过下面的角色扮演游戏，你将知道孩子们是否明白盲目服从和在必要时说“不”的区别。
-
-
 
 记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
 
