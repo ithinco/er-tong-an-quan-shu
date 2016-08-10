@@ -65,7 +65,7 @@
 
 你不喜欢别人用什么方式来触碰你？
 
-How do you communicate that it's not okay with you?
+你会如何就自己不喜欢的触碰方式进行沟通？
 
 DO you ever try avoiding the person, or stepping aside or just letting them go ahead and hug you rather than make a fuss? Let’s see what other options you have.
 
