@@ -75,6 +75,7 @@
 
 
 RP: What if you have a coach who slaps you on the back every time he sees you? You don't like it and you feel a little weird and embarrassed about all the attention he gives you. What would you do?Actually role-play and practice a response.
+**角色扮演**：
 
 RP: What if a friend of your dad's always sits right next to you when he comes to visit and puts his hand on your leg? He seems nice enough, but you feel uncomfortable. You're worried about being rude since he's your dad's friend. What would you do?
 
