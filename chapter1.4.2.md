@@ -46,11 +46,9 @@
 
 下面的角色扮演游戏中都有一些麻烦的问题，但每个孩子都找到了解决方法。让我们来亲自尝试，看看碰到类似问题时该怎么做。
 
+记住，如果你要求某人停止正在做的事，而他们不听，这时我想要你说：“我要告诉大人”。
 
-Remember, if you ask someone to stop what they're doing and they don't stop, then I want you to say, "I'm going to tell."
-
-
-
+**角色扮演**：
 RP: What if a friend of your mom or dad comes to visit and puts his arm around you in a way that makes you feel uncomfortable of that seems creepy?
 
 
