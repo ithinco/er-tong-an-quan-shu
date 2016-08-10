@@ -6,7 +6,7 @@
 
 #### 目标
 
-理解偷偷摸摸沟通不会有效果
+理解暗暗的沟通不会有效果
 
 探讨撒谎的后果
 
@@ -16,6 +16,13 @@
 
 #### 大人须知
 
+Children classically attempt to get the adults around them to notice that they have a problem. They covertly communicate what is happening to them, hoping we will figure it out. It is important for children to understand that this simply does not work. They must take responsibility for communicating to get the help they need.
+孩子通常会试图让身边的大人注意到自己碰到了问题。他们会暗暗地告诉大人发生在自己身上的事情，希望大人能明白。
+
+
+There are other times when children are blamed for things they had nothing to do with. It is extraordinarily difficult to stand up for themselves under these circumstances. By role-playing and discussing what it takes to stand up to someone in authority, they gain valuable skills.
+
+Finally, sometimes children of this age confide in a friend about abuse, making the friend promise not to tell. Children need to know that it is both permissible and responsible to tell a trusted adult about what is happening. It is also useful to share with children that most kids tell other kids about their problems as a way to get help when they're unable to help themselves. In this case, being a real friend means telling an adult who can help.
 
 
 本课中的角色扮演游戏能让孩子们学会识别并抵抗常见的感情要挟，施虐者们经常用到这些把戏。由于 85% 到 90% 的施虐者都是孩子认识的人，而且孩子的貌似“配合”也是成功进行性侵的必要组成部分，因此直接拒绝参与是一个强大的预防工具。
