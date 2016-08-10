@@ -52,10 +52,9 @@
 
 为了帮助你的朋友，你可以告诉哪些人这件事？
 
-#### “不问问题”原则
+#### “不问缘由”原则
 
-In my family we have a No Questions Asked Rule.
-在我家，我们有一条“”
+在我家，我们有一条“不问缘由”原则。
 
 This means that our son can call us anytime, anywhere and ask to be picked up. We agree to do so, no questions asked! On the way home, we can discuss what happened and agree how to handle it, but he knows that he will not be in trouble for having made a smart choice to get out of a bad situation.
 
