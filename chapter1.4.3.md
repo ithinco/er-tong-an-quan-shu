@@ -44,17 +44,15 @@
 
 **角色扮演**：假如你碰到的情况是你说的是一回事，但大人说的却是另一回事，你觉得我会相信你还是那个大人？
 
-RP: What if your best friend told you a secret and you promised not to tell, but the secret was about something that had happened to your friend and you knew your friend needed help?
+**角色扮演**：假如你最好的朋友告诉你一个秘密，你也承诺不说出去，但这个秘密和发生在你朋友身上的事情有关，而且你知道他/她需要帮助，你会不遵守承诺告诉大人这件事吗？
 
-Would you be breaking your promise of secrecy if you tell an adult about the problem?
+你有哪些选择？你怎么做才称得上对自己负责？
 
-What are your choices? What would be the responsible thing to do?
+你会害怕说出这个秘密后，你的朋友生你的气吗？但你说出这个秘密可能是寻求帮助的唯一方法。
 
-Would you be afraid your friend might get angry with you for telling the secret? Maybe telling you is the only way your friend can ask for help.
+为了帮助你的朋友，你可以告诉哪些人这件事？
 
-Who are some people that you could tell in order to get help for your friend?
-
-No Questions Asked
+#### 不问问题
 
 In my family we have a No Questions Asked Rule.
 
