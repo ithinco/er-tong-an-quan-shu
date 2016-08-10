@@ -56,10 +56,10 @@
 
 在我家，我们有一条“不问缘由”原则。
 
-This means that our son can call us anytime, anywhere and ask to be picked up. We agree to do so, no questions asked! On the way home, we can discuss what happened and agree how to handle it, but he knows that he will not be in trouble for having made a smart choice to get out of a bad situation.
+也就是说，不管儿子什么时候在任何地方要求我们去接他，我们都照做，不问缘由！在回家的路上，我们会讨论发生了什么事，如何处理，但他知道，自己不会因为某个摆脱困境的明智选择而遇到麻烦。
 
-I talked about this with him, and all of his friends who had the same offer from me, for many years never thinking I would get the call. But I did get the call, multiple times, from him and from his friends.
+我和他说过这一原则，他所有的朋友也都可以打电话给我，我从未想过自己会接到他们的这类电话，但这么多年确实接到过不少。
 
-This rule can save your child’s life and is an excellent way to end this series of lessons.
+这一原则能挽救你孩子的生命，也能避免很多类似问题。
 
-Even though this series of discussions is over, these skills are important in every single day of your child’s life. Keep talking about how you child can be more effective and more capable in managing his/her life.
+即便课程结束，这些技能在孩子的日常生活中也会扮演重要角色。你要不断提醒孩子，告诉他们可以如何更有效地管理自己的生活。
