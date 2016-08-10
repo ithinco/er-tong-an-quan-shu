@@ -39,7 +39,10 @@
 
 记住，角色扮演重在实践，以便让孩子们学会技能，而不仅仅是概念。
 
-The central message underlying all the role-plays is this:There isn't anyone in the entire world that children can't say "no" to if they are asked to do something they think:is wrong,that could hurt them, orthat they know they shouldn't do.
+> 下面所有角色扮演游戏要传达的核心信息是：
+
+> 
+There isn't anyone in the entire world that children can't say "no" to if they are asked to do something they think:is wrong,that could hurt them, orthat they know they shouldn't do.
 
 #### 孩子须知
 
