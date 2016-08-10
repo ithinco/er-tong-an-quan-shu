@@ -63,8 +63,3 @@ I talked about this with him, and all of his friends who had the same offer from
 This rule can save your child’s life and is an excellent way to end this series of lessons.
 
 Even though this series of discussions is over, these skills are important in every single day of your child’s life. Keep talking about how you child can be more effective and more capable in managing his/her life.
-
-
-
-
-
