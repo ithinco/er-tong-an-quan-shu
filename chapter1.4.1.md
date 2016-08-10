@@ -96,6 +96,8 @@
 这会让你觉得尴尬或感觉自己在打小报告吗？
 
 Tattling is when they tell on someone so they can get them in trouble. While speaking up and letting the person now they're going to tell may be embarrassing, it' no more difficult than the feelings they'll have if they let the touching continue.
+打小报告是你让别的孩子或者兄弟姐妹陷入麻烦，告诉大人你遇到麻烦需要帮助并不是打小报告。虽然大声说出来
+
 
 RP: What if an adult friend of yours is putting suntan lotion on you at the pool? After a minute you feel uncomfortable about the way the person is touching you. What do you say and do?
 
