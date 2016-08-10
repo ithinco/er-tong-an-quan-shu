@@ -70,7 +70,8 @@
 你是否尝试过躲开、站到一边或是为了避免争吵而直接让对方抱？让我们来看看你还有哪些选择。
 
 RP: What about if we have a big family get-together and someone comes up to you and touches your hair, pinches your cheeks, or kisses you and you don’t like it? How would you handle a situation like that?Role play several of these situations. Focus on clear verbal communication, consistent body language and eye contact. Be sure your child knows w/he has your permission to speak up, even with family.
-**角色扮演**：
+**角色扮演**：假如在参加家庭大聚会时，有人过来摸你的头发，捏你的脸蛋或者亲你，但是你不喜欢这样，你会怎么做？你会怎么处理这种情况？用角色扮演游戏模拟多种情景。重点是清楚的言语沟通，一致的肢体语言和眼神接触
+
 
 RP: What if you have a coach who slaps you on the back every time he sees you? You don't like it and you feel a little weird and embarrassed about all the attention he gives you. What would you do?Actually role-play and practice a response.
 
