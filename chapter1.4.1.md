@@ -101,11 +101,11 @@
 
 假如对方说：“没事，我们是不一般的朋友。”这样行吗？
 
-假如
-What if you say "I'm going to tell" and your friend says, "If you tell, I won't be your friend anymore." What would you do?
+假如你说：“我要告诉大人”，但对方说：“如果你告诉，咱俩就断交。”你会怎么做？
 
-If someone says they won't be your friend anymore, is that person really your friend?
+如果对方说不再和你做朋友，那他/她是你真正的朋友吗？
 
+我觉得不是。
 I don't think so. It's important that you tell someone as soon as you can about what happened.
 
 Your body is part of who you are. People who care about you, and respect you, should also respect your body. When you speak up, they should listen.
