@@ -79,7 +79,7 @@
 
 **角色扮演**：假如你爸爸的某个朋友来做客时总是坐在你旁边，还把手放在你腿上，虽然他看起来很好，但这么做让你感觉不舒服，而考虑到他是你爸爸的朋友，你又担心说出来显得无礼，这时你会怎么做？
 
-
+如果
 If you do things like avoiding the person, or making excuses like you have to go do your homework, could the problem keep coming up? So, is that an effective way to handle the problem?
 
 Are there some kinds of touch you like with some people and not with others?
