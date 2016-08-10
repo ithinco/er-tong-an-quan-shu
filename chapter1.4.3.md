@@ -42,7 +42,7 @@
 
 你觉得我们会想要知道是什么事让你难受吗？即便事情很难以启齿或让人尴尬。
 
-**角色扮演**：假如你碰到的情况是你说的是一回事，但大人说的缺是另一回事，你觉得我会相信你还是那个大人？
+**角色扮演**：假如你碰到的情况是你说的是一回事，但大人说的却是另一回事，你觉得我会相信你还是那个大人？
 
 RP: What if your best friend told you a secret and you promised not to tell, but the secret was about something that had happened to your friend and you knew your friend needed help?
 
