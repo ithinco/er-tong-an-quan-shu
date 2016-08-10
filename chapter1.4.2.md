@@ -44,126 +44,127 @@
 
 #### 角色扮演
 
+Those were some hard situations, but each of the kids found a way to handle what was happening. Let's try some situations and see how you do.
 
 
-假如有人的触碰方式让你感觉不适，除了你自己之外，还有其他人能帮你说吗？
 
+Remember, if you ask someone to stop what they're doing and they don't stop, then I want you to say, "I'm going to tell."
 
 
-你认为沟通是什么？
 
+RP: What if a friend of your mom or dad comes to visit and puts his arm around you in a way that makes you feel uncomfortable of that seems creepy?
 
 
-> 沟通指的是某人用肢体或言语来说了某件事，而对方也理解了这件事。
 
+When you try to move away he says, "Oh, you're friend, I came over just to see you." What would you say and do?
 
 
-你还记得有效沟通的三大要素吗？
 
+What if the person says to you, "Don't you like me? If you liked me, you'd sit here with me." What would you say and do?
 
 
-* 眼神接触
 
-* 言辞达意
+We want to create an absolutely clear progression here for children.
 
-* 相配的肢体语言
+First they say "no." Then they say, I’m going to tell." Then they tell.
 
 
 
-你不喜欢别人用什么方式来触碰你？
+RP: What if you were taking gymnastics and the man who teaches the class kisses your cheeks and gets too close to your face when he tells you how you did? You feel uncomfortable and intimidated. You ask him to stop and back up a little bit so you can see him better.
 
 
 
-你会如何就自己不喜欢的触碰方式进行沟通？
+But he keeps doing it. When you say, "I'm going to tell," he says, "Go ahead and tell, I don’t care.” What would you do? Do you think your mom or dad or teachers would care?
 
 
 
-你是否尝试过躲开、站到一边或是为了避免争吵而直接让对方抱？让我们来看看你还有哪些选择。
+RP: What if your best friend's dad touches your bottom or your legs every time you get close to him. You ask him to stop, but he keeps doing it. What would you say and do?
 
 
 
-**角色扮演**：假如在参加家庭大聚会时，有人过来摸你的头发，捏你的脸蛋或者亲你，但是你不喜欢这样，你会怎么做？你会怎么处理这种情况？
+What if when you say, "I'm going to tell," he says, Oh, I’m sorry, I won't do it again, but please don't tell." What would you say and do?
 
 
 
-> 用角色扮演游戏模拟多种情景。重点是言辞达意，相配的肢体语言和眼神接触。确保孩子知道，自己可以大声说话，哪怕是对家人。
+What if he says, "Please don't tell and I'll do special for you. Okay?" Would that be all right?
 
 
 
-**角色扮演**：假如你的教练每次看到你时都要拍你的背，而你不喜欢这样，觉得有点奇怪和尴尬，你会怎么做？
+What is that called? That's called bribery.
 
 
 
-> 通过角色扮演游戏来练习对此进行回应。
+RP: What if your sitter pinches and bends your ear every time you do something she doesn't like? You tell her it hurts, but she keeps doing it.
 
 
 
-**角色扮演**：假如你爸爸的某个朋友来做客时总是坐在你旁边，还把手放在你腿上，虽然他看起来很好，但这么做让你感觉不舒服，而考虑到他是你爸爸的朋友，你又担心说出来显得无礼，这时你会怎么做？
+When you say, "I'm going to tell," she says, "Go ahead and tell, no one will believe you. I'm the sitter and I'm in charge." What would you do?
 
 
 
-如果你躲开这个人，或是借口说自己要去做作业，问题还会继续出现吗？因此，这是解决这一问题的有效方法吗？
+What's that called?
 
 
 
-你会喜欢一些人以某种方式触碰你，却不喜欢其他人这样对你吗？
+The word for that is intimidation. She's trying to control you without admitting what she's trying to do. Does she have the right to do that?
 
 
 
-> 这就是因人而异，应该得到鼓励。
+RP: What if someone says to you, "If you tell, I'll hurt you or someone in your family."
 
 
 
-**角色扮演**：假如有人一开始的触碰方式貌似合适，但慢慢就变得不合适了呢？用孩子提到的例子，或者举例如抱得太久太紧，摸手摸脚乃至亲吻。
+What's that called?
 
 
 
-你觉得自己能大声说出来吗？你会怎么做？
+That is a threat and you should never try to handle a situation like that by yourself.
 
 
 
-假如你确实大声说了，但对方并不停止或尊重你说的话，甚至试图叫你乖乖听话，你接下来会做什么？
+Would it be scary if someone said something like that to you?
 
 
 
-你最好说：“我要告诉大人。”这能让对方知道你是认真的，如果对方不照你的话去做，你就要去寻求其他大人的帮助了。
+No matter how scared you are, you need to tell and keep telling until someone helps you.
 
 
 
-这会让你觉得尴尬或感觉自己在打小报告吗？
+RP: What if you tell someone about what happened and they say something like, "Oh don't be silly. They were just joking."
 
 
 
-打小报告是你让别的孩子或者兄弟姐妹陷入麻烦，告诉大人你遇到麻烦需要帮助并不是打小报告。虽然大声说出来或许会让你感觉尴尬，但和对方触碰你后的感受相比，就不值一提了。
+Then what would you do? That's right you'd tell someone else.
 
 
 
-**角色扮演**：假如有个大人在游泳池旁边给你涂防晒霜，但在一分钟后，你觉得对方的触碰方式让你感觉不舒服，这时你会怎么说，怎么做？
+Review
 
 
 
-假如对方说：“没事，我们是不一般的朋友。”这样行吗？
+When you say, "I'm going to tell," there are lots of ways people might try to get you to do what they want you to do.
 
 
 
-假如你说：“我要告诉大人”，但对方说：“如果你告诉，咱俩就断交。”你会怎么做？
+They might try bribery saying, "Go ahead and tell, I don’t care."
 
 
 
-如果对方说不再和你做朋友，那他/她是你真正的朋友吗？
+They might tell you that "No one will believe you,” or use intimidation and threats.
 
 
 
-我觉得不是。一旦碰到这种情况，我希望你马上去告诉大人。
+All of these are ways to try to control you. Are you going to let that happen? NO!
 
 
 
-你的身体是你的一部分。关心你、尊重你的人也应该尊重你的身体。当你大声说话时，他们应该倾听。
+Is it being responsible to tell?
 
 
 
-如果有人以你不喜欢、感觉不舒服或认为不对的方式触碰你时，你会怎么做？
+Is telling making a choice that is healthy and good for you? Is it responsible to tell, to get help when you can’t handle something by yourself?
 
 
 
-大声说出来并告诉大人！
+Does that mean it's going to be easy? Probably not, but it’s important to remember that the person who is bothering you probably won’t stop until you do tell someone.
+
