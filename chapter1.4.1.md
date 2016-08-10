@@ -87,7 +87,7 @@
 
 **角色扮演**：假如有人一开始的触碰方式貌似合适，但慢慢就变得不合适了呢？用孩子提到的例子，或者举例如抱得太久太紧，摸手摸脚乃至亲吻。
 
-Would you feel able about speaking up? What would you do?
+你觉得自己能大声说出来吗？你会怎么做？
 
 What if you do say something and the person doesn’t stop or doesn't respect what you said, or tries to talk you into letting them do what they want to do? What would you do next?
 
