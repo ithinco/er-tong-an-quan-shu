@@ -24,11 +24,9 @@
 
 #### 大人须知
 
+本课中的角色扮演游戏能让孩子们学会识别并抵抗常见的感情要挟，施虐者们经常用到这些把戏。由于 85% 到 90% 的施虐者都是孩子认识的人，而且孩子的貌似“配合”也是成功进行性侵的必要组成部分，因此直接拒绝参与是一个强大的预防工具。
 
-The role-plays in this lesson prepare the child to recognize and resist the common emotional ploys used by offenders to get them to go along in abusive situations. Since the vast majority of abusers (85-90%) are known to the child, and seeming "compliance" on the part of the child is necessary for the successful completion of the offense, straightforward refusal to participate is a powerful prevention tool.
-
-
-由于 85% 到 90% 的施虐者都是孩子认识的人，因此在预防虐待上，教育孩子们抵抗要挟和不保密就变得很重要了。在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
+在受到要挟时拒绝沉默和拒绝保密的孩子更有可能免于虐待。犯罪分子希望孩子的配合，通常只有孩子保证保密时，他们才会继续下去。
 
 “我会告诉大人”是让孩子们自行摆脱困境或避免虐待的第二步。拒绝参与或不保持沉默的孩子遭受虐待的几率要小很多。记住，施虐者寻找的是温暖、不作评判、亲切的关系。他们不想要拒绝。如果遭到了拒绝，他们更可能转而寻求另一个目标，而不是冒险伤害一个懂得抗拒的孩子。
 
